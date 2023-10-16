@@ -35,6 +35,16 @@ jobs:
          git add picture/*
          git add docs/*
          git add zh-cn/*
+         git add ja-jp/*
+         git add en-in/*
+         git add pt-br/*
+         git add fr-fr/*
+         git add de-de/*
+         git add en-ca/*
+         git add en-gb/*
+         git add it-it/*
+         git add es-es/*
+         git add fr-ca/*
          git commit -m "update readme.md"
     - name: Push changes
       uses:  ad-m/github-push-action@master
