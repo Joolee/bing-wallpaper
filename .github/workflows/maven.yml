@@ -46,7 +46,7 @@ jobs:
          git add it-it/*
          git add es-es/*
          git add fr-ca/*
-         git commit -m "update readme.md"
+         git diff --staged --quiet || git commit -m "update readme.md"
     - name: Push changes
       uses: ad-m/github-push-action@master
       with:
