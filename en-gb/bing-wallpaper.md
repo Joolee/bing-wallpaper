@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-20 | [Pygmy three-toed sloth baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)](https://cn.bing.com/th?id=OHR.PygmySloth_EN-GB3183827420_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-19 | [Water lily harvest, Mekong River Delta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)](https://cn.bing.com/th?id=OHR.WaterLilyVietnam_EN-GB4801163561_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-18 | [Canary Wharf underground station, London (© AWL Images/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.CanaryWharfStation_EN-GB4531967765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

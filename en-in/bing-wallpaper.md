@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-20 | [Pygmy three-toed sloth baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)](https://cn.bing.com/th?id=OHR.PygmySloth_EN-IN4513982904_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-19 | [Idols of Hindu gods and goddesses in Kumortuli, Kolkata, India.   (© Rob Pinney/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.GoddessDurga_EN-IN0729980140_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-18 | [Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.KodiakAlaska_EN-IN7392777987_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

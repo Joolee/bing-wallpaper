@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-20 | [Bébé paresseux nain, île Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)](https://cn.bing.com/th?id=OHR.PygmySloth_FR-FR4389776641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-19 | [Récolte de nénuphars, delta du Mékong, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)](https://cn.bing.com/th?id=OHR.WaterLilyVietnam_FR-FR4028211230_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-18 | [Refuge faunique national de Kodiak, Alaska, États-Unis (© Ian Shive/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.KodiakAlaska_FR-FR3778236447_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
