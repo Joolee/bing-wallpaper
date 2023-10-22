@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-23 | [Ponte Astoria-Megler no Rio Columbia, Astoria, Oregon, EUA (© Dan Mihai/Getty Images)](https://cn.bing.com/th?id=OHR.AstoriaBridge_PT-BR7535453124_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-22 | [Relevos na antiga cidade persa de Persépolis, Irã (© Ozbalci/Getty Images)](https://cn.bing.com/th?id=OHR.PersepolisRelief_PT-BR7243215080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-21 | [Filhote de bicho-preguiça-de-três-dedos, Isla Escudo de Veraguas, Panamá (© Suzi Eszterhas/Minden Pictures)](https://cn.bing.com/th?id=OHR.PygmySloth_PT-BR7040912343_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

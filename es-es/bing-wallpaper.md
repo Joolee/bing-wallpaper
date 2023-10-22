@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-22 | [Calle Bernabé Soriano y Catedral de Jaén, España (© Diego Grandi/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.JaenFair_ES-ES5495471226_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-21 | [Grabados en la antigua ciudad persa de Persépolis, Irán (© Ozbalci/Getty Images)](https://cn.bing.com/th?id=OHR.PersepolisRelief_ES-ES3472864500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-20 | [Bebé de perezoso pigmeo, Isla Escudo de Veraguas, Panamá (© Suzi Eszterhas/Minden Pictures)](https://cn.bing.com/th?id=OHR.PygmySloth_ES-ES3200291447_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
