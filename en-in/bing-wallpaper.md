@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-23 | [Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)](https://cn.bing.com/th?id=OHR.PoconosMaze_EN-IN9531761030_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-22 | [Astoria-Megler Bridge on the Columbia River, Astoria, Oregon (© Dan Mihai/Getty Images)](https://cn.bing.com/th?id=OHR.AstoriaBridge_EN-IN4923523850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-21 | [View of Jaswant Thada and Mehrangarh Fort in Jodhpur city in Rajasthan, India. (© Twenty47studio/Getty images)](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_EN-IN9646660866_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

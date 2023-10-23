@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-23 | [Isola di San Giorgio Maggiore,Venezia, Italia (© Cihan Bektas/AmazingA)](https://cn.bing.com/th?id=OHR.SanGiorgioMaggiore_IT-IT9222946405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-22 | [Il Ponte di Astoria-Megler sul fiume Columbia, Astoria, Oregon, Stati Uniti (© Dan Mihai/Getty Images)](https://cn.bing.com/th?id=OHR.AstoriaBridge_IT-IT7575959627_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-21 | [Bassorilievi dell'antica città persiana di Persepoli, Iran (© Ozbalci/Getty Images)](https://cn.bing.com/th?id=OHR.PersepolisRelief_IT-IT7224171772_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
