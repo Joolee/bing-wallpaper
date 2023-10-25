@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-26 | [シェーンブルン宮殿, オーストリア ウィーン (© rusm/Getty Images)](https://cn.bing.com/th?id=OHR.ViennaAutumn_JA-JP3547270203_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-25 | [グランド・ステアケース＝エスカランテ国定記念公園, 米国 ユタ州 (© Jeff Foott/Minden Pictures)](https://cn.bing.com/th?id=OHR.GrandStaircase_JA-JP3373019337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-24 | [フュゼール城, ハンガリー (© ZGPhotography/Alamy)](https://cn.bing.com/th?id=OHR.FuzerCastle_JA-JP2974614535_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
