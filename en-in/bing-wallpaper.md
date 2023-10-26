@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-26 | [Autumn foliage in Schönbrunn Palace Park, Vienna, Austria (© rusm/Getty Images)](https://cn.bing.com/th?id=OHR.ViennaAutumn_EN-IN5923148753_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-25 | [Cottonwood trees in Grand Staircase-Escalante National Monument, Utah (© Jeff Foott/Minden Pictures)](https://cn.bing.com/th?id=OHR.GrandStaircase_EN-IN5738946935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-24 | [Dussehra festival celebration in India (© im a photographer and an artist/Getty Images)](https://cn.bing.com/th?id=OHR.VijayadashamiFestival_EN-IN5330705675_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

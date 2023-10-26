@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-26 | [Fogliame autunnale nel parco del Castello di Schönbrunn (© rusm/Getty Images)](https://cn.bing.com/th?id=OHR.ViennaAutumn_IT-IT9164239542_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-25 | [Parco Grand Staircase-Escalante National Monument, Utah, USA (© Jeff Foott/Minden Pictures)](https://cn.bing.com/th?id=OHR.GrandStaircase_IT-IT8917709693_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-24 | [Il castello di Füzér nei monti Zemplén, Ungheria (© ZGPhotography/Alamy)](https://cn.bing.com/th?id=OHR.FuzerCastle_IT-IT9605113103_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
