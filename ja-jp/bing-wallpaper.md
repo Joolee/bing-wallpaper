@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-28 | [コンスエグラ, スペイン カスティーリャ＝ラ・マンチャ州 (© Getty Images)](https://cn.bing.com/th?id=OHR.FiveWinds_JA-JP4074287650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-27 | [スカイ島のスリガチャン・オールド・ブリッジ, スコットランド (© Aliaume Chapelle/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.OldBridgeSkye_JA-JP3696006091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-26 | [シェーンブルン宮殿, オーストリア ウィーン (© rusm/Getty Images)](https://cn.bing.com/th?id=OHR.ViennaAutumn_JA-JP3547270203_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
