@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-29 | [Burg Füzér im Tokajer Gebirge, Ungarn (© ZGPhotography/Alamy)](https://cn.bing.com/th?id=OHR.FuzerCastle_DE-DE7545775063_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-28 | [Windmühlen in Kastilien-La Mancha, Spanien (© Getty Images)](https://cn.bing.com/th?id=OHR.FiveWinds_DE-DE4868049258_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-27 | [Alte Brücke von Sligachan, Isle of Skye, Schottland (© Aliaume Chapelle/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.OldBridgeSkye_DE-DE4629287112_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

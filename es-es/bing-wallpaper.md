@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-29 | [Cementerio Bonaventure, Savannah, Georgia, EE.UU. (© Kelly vanDellen/Alamy)](https://cn.bing.com/th?id=OHR.SavannahSculpture_ES-ES0759483028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-28 | [Arco de San Miguel de Mazarreros, Sasamón, Burgos, España (© Stock photo/Getty Images)](https://cn.bing.com/th?id=OHR.EclipseLunar_ES-ES8609710633_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-27 | [Puente viejo de Sligachan, Isla de Skye, Escocia (© Aliaume Chapelle/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ES-ES9518252617_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
