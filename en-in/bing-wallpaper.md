@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-30 | [Common raven sitting on a branch (© WildMedia/Shutterstock)](https://cn.bing.com/th?id=OHR.AutumnRaven_EN-IN6850233265_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-29 | [Bonaventure Cemetery, Savannah, Georgia (© Kelly vanDellen/Alamy)](https://cn.bing.com/th?id=OHR.SavannahSculpture_EN-IN6597783856_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-28 | [Windmills in Castilla-La Mancha, Spain (© Getty Images)](https://cn.bing.com/th?id=OHR.FiveWinds_EN-IN6400714117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

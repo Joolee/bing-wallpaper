@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-31 | [Corvo comum pousado em um galho (© WildMedia/Shutterstock)](https://cn.bing.com/th?id=OHR.AutumnRaven_PT-BR0746434304_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-30 | [Interior do Real Gabinete Português de Leitura, Rio de Janeiro, Brasil (© Donatas Dabravolskas/Shutterstock)](https://cn.bing.com/th?id=OHR.RoyalCabinet_PT-BR0309884502_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-29 | [Moinhos de vento em Castilla-La Mancha, Espanha (© Getty Images)](https://cn.bing.com/th?id=OHR.FiveWinds_PT-BR9736426196_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

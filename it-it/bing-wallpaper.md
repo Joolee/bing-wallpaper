@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-30 | [Corvo comune di vedetta su un ramo (© WildMedia/Shutterstock)](https://cn.bing.com/th?id=OHR.AutumnRaven_IT-IT0004951220_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-29 | [Langhe, sito UNESCO in Piemonte (© Kelly van Dellen/Getty Images)](https://cn.bing.com/th?id=OHR.LangheItaly_IT-IT0113842370_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-28 | [Mulini a vento in Castilla-La Mancha, Spagna (© Getty Images)](https://cn.bing.com/th?id=OHR.FiveWinds_IT-IT3588998900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
