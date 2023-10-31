@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-31 | [Farolillos de Halloween en un porche (© Bing Image Creator)](https://cn.bing.com/th?id=OHR.HalloweenPorchAI_ES-ES1106501127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-30 | [Cuervo común sentado en una rama (© WildMedia/Shutterstock)](https://cn.bing.com/th?id=OHR.AutumnRaven_ES-ES0937725332_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-29 | [Cementerio Bonaventure, Savannah, Georgia, EE.UU. (© Kelly vanDellen/Alamy)](https://cn.bing.com/th?id=OHR.SavannahSculpture_ES-ES0759483028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

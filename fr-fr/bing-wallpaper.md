@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-31 | [Lanternes citrouilles d'Halloween sous un porche (© Bing Image Creator)](https://cn.bing.com/th?id=OHR.HalloweenPorchAI_FR-FR8550408492_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-30 | [Grand corbeau assis sur une branche (© WildMedia/Shutterstock)](https://cn.bing.com/th?id=OHR.AutumnRaven_FR-FR8284652857_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-29 | [L'Open 60 Safran, Transat Jacques Vabre 2011, skipper Marc Guillemot co/skipper Yann Eliès, Bretagne (© Christophe Launay/Aurora Photos/Cavan Images/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.TransatJacquesVabre_FR-FR7973577360_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

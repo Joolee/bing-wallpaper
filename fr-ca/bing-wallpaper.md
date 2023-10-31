@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-01 | [Lanternes citrouilles d'Halloween sous un porche (© Bing Image Creator)](https://cn.bing.com/th?id=OHR.HalloweenPorchAI_FR-CA7805975704_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-31 | [Grand corbeau assis sur une branche (© WildMedia/Shutterstock)](https://cn.bing.com/th?id=OHR.AutumnRaven_FR-CA7668123944_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-30 | [Lac Kenny à l'aube, Parc provincial du Lac-Supérieur, Ontario, Canada  (© Don Johnston/agefotostock)](https://cn.bing.com/th?id=OHR.KennyLake_FR-CA9652787331_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

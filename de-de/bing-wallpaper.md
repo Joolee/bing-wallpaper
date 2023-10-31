@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-31 | [Halloween-Kürbisse auf einer Veranda (© Bing Image Creator)](https://cn.bing.com/th?id=OHR.HalloweenPorchAI_DE-DE1828718794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-30 | [Zwei Stockenten im Wasser, Herbst, Deutschland (© sun ok/Shutterstock)](https://cn.bing.com/th?id=OHR.MallarDucks_DE-DE7798366188_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-29 | [Burg Füzér im Tokajer Gebirge, Ungarn (© ZGPhotography/Alamy)](https://cn.bing.com/th?id=OHR.FuzerCastle_DE-DE7545775063_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
