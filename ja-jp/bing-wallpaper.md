@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-01 | [コロンビア川とアストリア・メグラー橋, 米国 オレゴン州 (© Dan Mihai/Getty Images)](https://cn.bing.com/th?id=OHR.AstoriaBridge_JA-JP5052562579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-31 | [ハロウィンのシンボルであるジャック・オー・ランタン (© Bing Image Creator)](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_JA-JP4715230706_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-30 | [グレナリフ森林公園, 北アイルランド アントリム県 (© Peter Zelei/Getty Images)](https://cn.bing.com/th?id=OHR.GlenariffForest_JA-JP1774079251_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
