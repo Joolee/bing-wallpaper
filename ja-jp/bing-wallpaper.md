@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-02 | [デスバレー国立公園, 米国 カリフォルニア州 (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.DeathValleySalt_JA-JP5389792178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-01 | [コロンビア川とアストリア・メグラー橋, 米国 オレゴン州 (© Dan Mihai/Getty Images)](https://cn.bing.com/th?id=OHR.AstoriaBridge_JA-JP5052562579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-31 | [ハロウィンのシンボルであるジャック・オー・ランタン (© Bing Image Creator)](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_JA-JP4715230706_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
