@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-01 | [Château de Haut-Barr, Pays de Saverne, Vosges, France (© Andrea Pistolesi/Getty Images)](https://cn.bing.com/th?id=OHR.HautBarr_FR-FR8742870130_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-10-31 | [Lanternes citrouilles d'Halloween sous un porche (© Bing Image Creator)](https://cn.bing.com/th?id=OHR.HalloweenPorchAI_FR-FR8550408492_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-10-30 | [Grand corbeau assis sur une branche (© WildMedia/Shutterstock)](https://cn.bing.com/th?id=OHR.AutumnRaven_FR-FR8284652857_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
