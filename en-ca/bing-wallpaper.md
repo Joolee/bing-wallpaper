@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-03 | [Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-CA1198196681_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-02 | [Kenny Lake at dawn, Lake Superior Provincial Park, Ontario, Canada (© Don Johnston/agefotostock)](https://cn.bing.com/th?id=OHR.KennyLake_EN-CA8728888429_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-01 | [Halloween jack-o'-lanterns on a porch (© Bing Image Creator)](https://cn.bing.com/th?id=OHR.HalloweenPorchAI_EN-CA3930068285_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
