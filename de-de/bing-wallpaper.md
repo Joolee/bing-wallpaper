@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-03 | [Hunsrück Hochwald, Herbstwald bei Deuselbach, Naherholungsgebiet Erbeskopf, Rheinland-Pfalz (© Hans-Peter Merten/Huber/eStock Photo)](https://cn.bing.com/th?id=OHR.HunsrueckHochwald_DE-DE8281087937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-02 | [Salzebenen im Badwater Basin, Death Valley National Park, Kalifornien, USA (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.DeathValleySalt_DE-DE7062517949_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-01 | [Burg Hohbarr, Elsass, Frankreich (© Andrea Pistolesi/Getty Images)](https://cn.bing.com/th?id=OHR.HautBarr_DE-DE1903571271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

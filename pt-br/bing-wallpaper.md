@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-04 | [Medusas-do-mar-do-Pacífico ao largo da costa de Carmel, Califórnia, EUA (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SeaNettles_PT-BR5271291452_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-03 | [Sais no Badwater Basin, Parque Nacional do Vale da Morte, Califórnia, EUA (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.DeathValleySalt_PT-BR1340047933_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-02 | [Castelo de Haut-Barr, Pays de Saverne, Vosges, França (© Andrea Pistolesi/Getty Images)](https://cn.bing.com/th?id=OHR.HautBarr_PT-BR1136803227_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
