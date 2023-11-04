@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-05 | [Bison d'Amérique, parc national de Yellowstone, Wyoming, États-Unis (© Gary Gray/Getty Images)](https://cn.bing.com/th?id=OHR.BisonSnow_FR-CA7542759152_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-04 | [Méduse dorée, au large de la côte de Carmel, Californie, États-Unis (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SeaNettles_FR-CA7374697167_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-03 | [Salines dans le bassin Badwater, parc national de la Vallée de la Mort, Californie, États-Unis (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.DeathValleySalt_FR-CA8097089890_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-05 | [Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)](https://cn.bing.com/th?id=OHR.SilencioSpain_EN-GB8484169314_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-04 | [Pacific sea nettles off the coast of Carmel, California, USA (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SeaNettles_EN-GB7463193359_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-03 | [Salt flats in Badwater Basin, Death Valley National Park, California, USA (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-GB5385512090_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
