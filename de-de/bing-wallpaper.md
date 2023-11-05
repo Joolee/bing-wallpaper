@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-05 | [Quarzitformation, Playa del Silencio, Asturien, Spanien (© Jean-Philippe Delobelle/Minden Pictures)](https://cn.bing.com/th?id=OHR.SilencioSpain_DE-DE3741175686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-04 | [Amerikanischer Bison, Yellowstone-Nationalpark, Wyoming, USA (© Gary Gray/Getty Images)](https://cn.bing.com/th?id=OHR.BisonSnow_DE-DE9907596119_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-03 | [Hunsrück Hochwald, Herbstwald bei Deuselbach, Naherholungsgebiet Erbeskopf, Rheinland-Pfalz (© Hans-Peter Merten/Huber/eStock Photo)](https://cn.bing.com/th?id=OHR.HunsrueckHochwald_DE-DE8281087937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
