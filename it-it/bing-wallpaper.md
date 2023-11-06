@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-06 | [Lago Pehoé, Parco Nazionale Torres del Paine, Cile (© OST/Getty Images)](https://cn.bing.com/th?id=OHR.LagoPehoe_IT-IT9495444218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-05 | [Formazione di quarzite, Playa del Silencio, Spagna (© Jean-Philippe Delobelle/Minden Pictures)](https://cn.bing.com/th?id=OHR.SilencioSpain_IT-IT5372993928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-04 | [Bisonte americano, Parco nazionale di Yellowstone, Wyoming (© Gary Gray/Getty Images)](https://cn.bing.com/th?id=OHR.BisonSnow_IT-IT6079794906_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
