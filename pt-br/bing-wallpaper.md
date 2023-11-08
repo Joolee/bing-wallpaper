@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-09 | [Mãe e bebê peixe-boi da Flórida,Crystal River, Three Sisters Spring, Flórida, EUA (©  Karine Aigner/Tandem Stills Motion)](https://cn.bing.com/th?id=OHR.ManateeMama_PT-BR7962381210_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-08 | [Lagos Kirkilai e torre de observação, Parque Regional de Biržai, Lituânia (© MNStudio/Shutterstock)​](https://cn.bing.com/th?id=OHR.KirkilaiTower_PT-BR7621232090_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-07 | [Lago Pehoé, Parque Nacional Torres del Paine, sul do Chile (© OST/Getty Images)](https://cn.bing.com/th?id=OHR.LagoPehoe_PT-BR7207150939_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

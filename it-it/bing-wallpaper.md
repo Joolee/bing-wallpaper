@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-08 | [Madre e figlio di lamantino delle Indie Occidentali, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.ManateeMama_IT-IT1827292679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-07 | [Laghi di Kirkilai e torre panoramica, Parco Regionale di Biržai, Lituania (© MNStudio/Shutterstock)](https://cn.bing.com/th?id=OHR.KirkilaiTower_IT-IT0096866054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-06 | [Lago Pehoé, Parco Nazionale Torres del Paine, Cile (© OST/Getty Images)](https://cn.bing.com/th?id=OHR.LagoPehoe_IT-IT9495444218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

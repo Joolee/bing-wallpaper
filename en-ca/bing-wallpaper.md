@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-09 | [West Indian manatee mother and baby, Three Sisters Spring, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.ManateeMama_EN-CA6979465483_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-08 | [Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)](https://cn.bing.com/th?id=OHR.KirkilaiTower_EN-CA3981412668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-07 | [Lake Pehoé, Torres del Paine National Park, southern Chile (© OST/Getty Images)](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-CA3476467386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
