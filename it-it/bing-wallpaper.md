@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-10 | [Parco nazionale delle Badlands, Sud Dakota, Stati Uniti (© Grant Ordelheide/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BadlandsSunrise_IT-IT9035430276_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-09 | [Betulle in autunno, Drammen, Norvegia (© Baac3nes/Getty Images)](https://cn.bing.com/th?id=OHR.NorwayBirch_IT-IT3144074333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-08 | [Madre e figlio di lamantino delle Indie Occidentali, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.ManateeMama_IT-IT1827292679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

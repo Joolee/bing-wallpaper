@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-10 | [Das pittoreske Schweriner Schloss, Schwerin, Mecklenburg-Vorpommern (© Hannes Wendt/Shutterstock)](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_DE-DE9196106476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-09 | [Birken im Herbst, Drammen, Norwegen (© Baac3nes/Getty Images)](https://cn.bing.com/th?id=OHR.NorwayBirch_DE-DE9947810365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-08 | [Seekuh-Mutter mit Baby, Crystal River, Three Sisters Spring, Florida, USA (© Karine Aigner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.ManateeMama_DE-DE9487097081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
