@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-11 | [サレック国立公園, スウェーデン (© Hans Strand/Getty Images)](https://cn.bing.com/th?id=OHR.SarekSweden_JA-JP0736730927_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-10 | [バッドランズ国立公園, 米国 サウスダコタ州 (© Grant Ordelheide/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BadlandsSunrise_JA-JP0594221338_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-09 | [ドランメンの白樺林, ノルウェー (© Baac3nes/Getty Images)](https://cn.bing.com/th?id=OHR.NorwayBirch_JA-JP0530837645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
