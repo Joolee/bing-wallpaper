@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-12 | [Val di Funes, Tirol do Sul, Itália (© Achim Thomae/Getty Images)](https://cn.bing.com/th?id=OHR.ValDiFunes_PT-BR6615371523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-11 | [Praia de Ipanema, Rio de Janeiro, Brasil (© luza studios/Getty Images)](https://cn.bing.com/th?id=OHR.RiodeJaneiro_PT-BR8681945760_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-10 | [Bétulas no outono, Drammen, Noruega (©  Baac3nes/Getty Images)](https://cn.bing.com/th?id=OHR.NorwayBirch_PT-BR8138936699_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

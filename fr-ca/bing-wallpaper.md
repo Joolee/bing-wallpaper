@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-12 | [Forêt automnale et Youngs Peak, Colombie-Britannique, Canada (© David Noton/Minden)](https://cn.bing.com/th?id=OHR.YoungPeaks_FR-CA0195616338_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-11 | [Parc national des Badlands, Dakota du Sud, États-Unis (© Grant Ordelheide/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BadlandsSunrise_FR-CA8958948365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-10 | [Bouleaux en automne, Drammen, Norvège (© Baac3nes/Getty Images)](https://cn.bing.com/th?id=OHR.NorwayBirch_FR-CA8644140027_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

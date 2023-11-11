@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-12 | [Autumnal woodland and Young Peak, British Columbia, Canada (© David Noton/Minden)](https://cn.bing.com/th?id=OHR.YoungPeaks_EN-CA5929270890_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-11 | [Badlands National Park, South Dakota (© Grant Ordelheide/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-CA5356481625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-10 | [Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)](https://cn.bing.com/th?id=OHR.NorwayBirch_EN-CA5132198022_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

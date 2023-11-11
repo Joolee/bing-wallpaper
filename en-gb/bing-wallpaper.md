@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-12 | [Val di Funes, South Tyrol, Italy (© Achim Thomae/Getty Images)](https://cn.bing.com/th?id=OHR.ValDiFunes_EN-GB6334905741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-11 | [Badlands National Park, South Dakota, USA (© Grant Ordelheide/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-GB5753703796_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-10 | [Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)](https://cn.bing.com/th?id=OHR.NorwayBirch_EN-GB0948199357_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

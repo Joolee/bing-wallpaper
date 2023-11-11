@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-11 | [Pueblo de Sotres en los Picos de Europa, Asturias, España (© Daniel Candal/stock photo/Moment)](https://cn.bing.com/th?id=OHR.SanMartinDay_ES-ES6061572748_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-10 | [Parque Nacional de Badlands, Dakota del Sur, EE.UU. (© Grant Ordelheide/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ES-ES5802974564_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-09 | [Abedules en otoño, Drammen, Noruega (© Baac3nes/Getty Images)](https://cn.bing.com/th?id=OHR.NorwayBirch_ES-ES5601632512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

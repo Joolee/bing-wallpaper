@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-11 | [Traditional chinese fishing nets in Kochi, India at sunrise. (© mammuth/Getty images)](https://cn.bing.com/th?id=OHR.FishingNetsKochi_EN-IN7237495596_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-10 | [Badlands National Park, South Dakota (© Grant Ordelheide/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BadlandsSunrise_EN-IN3577388637_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-09 | [Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)](https://cn.bing.com/th?id=OHR.NorwayBirch_EN-IN3209177079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

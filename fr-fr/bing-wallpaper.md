@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-11 | [Drapeau français sous l’Arc de Triomphe, Paris, France (© Wiliam Perry/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.RemembranceDay_FR-FR5207828538_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-10 | [Parc national des Badlands, Dakota du Sud, États-Unis (© Grant Ordelheide/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BadlandsSunrise_FR-FR3335076381_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-09 | [Bouleaux en automne, Drammen, Norvège (© Baac3nes/Getty Images)](https://cn.bing.com/th?id=OHR.NorwayBirch_FR-FR2848858958_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
