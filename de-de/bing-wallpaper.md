@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-13 | [Alter Olivenhain in der Serra Tramuntana, Mallorca, Spanien (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.OliveOrchard_DE-DE1410209761_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-12 | [Lampen an den Ufern des Sarju-Flusses an Diwali, Ayodhya, Indien (© SANJAY KANOJIA/AFP/Getty Images)](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_DE-DE0909919399_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-11 | [Villnöß, Dolomiten im Hintergrund, Südtirol, Italien (© Achim Thomae/Getty Images)](https://cn.bing.com/th?id=OHR.ValDiFunes_DE-DE1024519394_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

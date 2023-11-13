@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-14 | [Velho olival na cordilheira Serra de Tramuntana, , Espanha (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.OliveOrchard_PT-BR9235175980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-13 | [Lâmpadas nas margens do rio Sarayu no Diwali, Ayodhya, Índia (© SANJAY KANOJIA/AFP/Getty Images)](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_PT-BR8972451551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-12 | [Val di Funes, Tirol do Sul, Itália (© Achim Thomae/Getty Images)](https://cn.bing.com/th?id=OHR.ValDiFunes_PT-BR6615371523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
