@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-15 | [Russell lupines ao longo do Lago Tekapo, Ilha Sul, Nova Zelândia (© Jeffrey Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.RussellLupines_PT-BR9426027629_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-14 | [Velho olival na cordilheira Serra de Tramuntana, , Espanha (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.OliveOrchard_PT-BR9235175980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-13 | [Lâmpadas nas margens do rio Sarayu no Diwali, Ayodhya, Índia (© SANJAY KANOJIA/AFP/Getty Images)](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_PT-BR8972451551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
