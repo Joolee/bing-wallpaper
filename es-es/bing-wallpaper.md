@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-15 | [Parque Nacional de Sarek, Suecia (© Hans Strand/Getty Images)](https://cn.bing.com/th?id=OHR.SarekSweden_ES-ES6715979547_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-14 | [Lupinos a orillas del lago Tekapo, Isla Sur, Nueva Zelanda (© Jeffrey Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.RussellLupines_ES-ES6454980527_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-13 | [Antiguo olivar en la Sierra de Tramontana, Mallorca, España (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.OliveOrchard_ES-ES6327790918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
