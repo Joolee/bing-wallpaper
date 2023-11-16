@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-16 | [Moulin à vent dans les vignes, France (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.BeaujolaisVineyard_FR-FR7011057276_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-15 | [Vallée de Rapa dans le parc national de Sarek, Suède (© Hans Strand/Getty Images)](https://cn.bing.com/th?id=OHR.SarekSweden_FR-FR6714007432_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-14 | [Lupins de Russell sur le lac Tekapo, île du Sud, Nouvelle-Zélande (© Jeffrey Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.RussellLupines_FR-FR6503844522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
