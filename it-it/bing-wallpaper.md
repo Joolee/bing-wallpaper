@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-17 | [Fiume Bad nel Parco statale di Copper Falls, Wisconsin, USA (© Big Joe/Getty Images)](https://cn.bing.com/th?id=OHR.BadRiver_IT-IT5930928466_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-16 | [Vista sull'Acropoli ateniese, Grecia (© Mlenny/Getty Images)](https://cn.bing.com/th?id=OHR.AthensAcropolis_IT-IT3514656411_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-15 | [La Valle Rapa nel Parco Nazionale di Sarek, Svezia (© Hans Strand/Getty Images)](https://cn.bing.com/th?id=OHR.SarekSweden_IT-IT3039153178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-17 | [Río Bad en el Parque Estatal de Copper Falls, Wisconsin, EE.UU. (© Big Joe/Getty Images)](https://cn.bing.com/th?id=OHR.BadRiver_ES-ES4057697814_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-16 | [Platja des Coll Baix en Mallorca, Islas Baleares, España (© Stefan Hefele/Mauritius Images/Offset by Shutterstock)](https://cn.bing.com/th?id=OHR.FiestaInca_ES-ES6946729543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-15 | [Parque Nacional de Sarek, Suecia (© Hans Strand/Getty Images)](https://cn.bing.com/th?id=OHR.SarekSweden_ES-ES2887332794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
