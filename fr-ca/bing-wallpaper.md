@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-19 | [Mère et oursons polaires, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)](https://cn.bing.com/th?id=OHR.MilsePolarBear_FR-CA5253564475_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-18 | [Rivière Bad River dans le parc d'État de Copper Falls, Wisconsin, États-Unis (© Big Joe/Getty Images)](https://cn.bing.com/th?id=OHR.BadRiver_FR-CA4132267343_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-17 | [Festival des Lumières, lac du jardin botanique VanDusen, Vancouver (© Wiliam Perry/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.VanDusenGarden_FR-CA0424585242_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
