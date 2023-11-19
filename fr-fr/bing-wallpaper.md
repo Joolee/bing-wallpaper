@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-19 | [Réserve naturelle d'Alam-Pedja, Estonie (© Sven Zacek/Minden Pictures)](https://cn.bing.com/th?id=OHR.FrozenBog_FR-FR5648130360_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-18 | [Mère et oursons polaires, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)](https://cn.bing.com/th?id=OHR.MilsePolarBear_FR-FR1430987110_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-17 | [Rivière Bad River dans le parc d'État de Copper Falls, Wisconsin, États-Unis (© Big Joe/Getty Images)](https://cn.bing.com/th?id=OHR.BadRiver_FR-FR0662194139_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

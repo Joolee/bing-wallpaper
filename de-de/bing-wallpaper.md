@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-19 | [Naturschutzgebiet Alam-Pedja, Estland (© Sven Zacek/Minden Pictures)](https://cn.bing.com/th?id=OHR.FrozenBog_DE-DE6348025354_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-18 | [Eisbärenmutter und -junge, Churchill, Manitoba, Kanada (© Thorsten Milse/Getty Images)](https://cn.bing.com/th?id=OHR.MilsePolarBear_DE-DE5881142630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-17 | [Königssee im Herbst, Berchtesgaden, Bayern (© rusm/Getty Images)](https://cn.bing.com/th?id=OHR.KoenigseeLake_DE-DE5469211104_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
