@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-21 | [Chapman Adventure Playground in the Gathering Place, Tulsa, Oklahoma (© Susan Vineyard/Alamy)](https://cn.bing.com/th?id=OHR.ChapmanAdventure_PT-BR3697464230_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-20 | [Bandeira brasileira voando sob o céu azul (©  GideoniJunior/Getty Images)](https://cn.bing.com/th?id=OHR.DiadaBandeira_PT-BR3508927163_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-19 | [Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)](https://cn.bing.com/th?id=OHR.MilsePolarBear_PT-BR2847800646_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
