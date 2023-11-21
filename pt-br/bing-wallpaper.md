@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-22 | [Gray seal pup on the beach of Norfolk, England (© Vince Burton/Minden Pictures)](https://cn.bing.com/th?id=OHR.HelloSeal_PT-BR4000213831_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-21 | [Chapman Adventure Playground in the Gathering Place, Tulsa, Oklahoma (© Susan Vineyard/Alamy)](https://cn.bing.com/th?id=OHR.ChapmanAdventure_PT-BR3697464230_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-20 | [Bandeira brasileira voando sob o céu azul (©  GideoniJunior/Getty Images)](https://cn.bing.com/th?id=OHR.DiadaBandeira_PT-BR3508927163_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

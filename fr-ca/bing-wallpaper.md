@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-22 | [Bébé phoque gris sur la plage de Norfolk, Angleterre (© Vince Burton/Minden Pictures)](https://cn.bing.com/th?id=OHR.HelloSeal_FR-CA6312414583_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-21 | [Aire de jeux Chapman Adventure Playground, Gathering Place, Tulsa, Oklahoma, États-Unis (© Susan Vineyard/Alamy)](https://cn.bing.com/th?id=OHR.ChapmanAdventure_FR-CA6044554100_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-20 | [Réserve naturelle d'Alam-Pedja, Estonie (© Sven Zacek/Minden Pictures)](https://cn.bing.com/th?id=OHR.FrozenBog_FR-CA5736508238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
