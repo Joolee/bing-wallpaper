@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-22 | [初冬の阿寒湖周辺, 北海道 釧路市 (© vladimir zakharov/Getty Images)](https://cn.bing.com/th?id=OHR.Xiaoxue2023_JA-JP4270732262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-21 | [ノーフォーク海岸, イギリス イングランド (© Vince Burton/Minden Pictures)](https://cn.bing.com/th?id=OHR.HelloSeal_JA-JP3912417099_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-20 | [ギャザリング・プレイス公園内の滑り台, 米国 オクラホマ州 (© Susan Vineyard/Alamy)](https://cn.bing.com/th?id=OHR.ChapmanAdventure_JA-JP3299214561_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
