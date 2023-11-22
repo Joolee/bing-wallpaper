@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-22 | [Parc national de Grand Teton, Wyoming, États-Unis (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_FR-FR7464068281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-21 | [Bébé phoque gris sur la plage de Norfolk, Angleterre (© Vince Burton/Minden Pictures)](https://cn.bing.com/th?id=OHR.HelloSeal_FR-FR6889028849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-20 | [Aire de jeux Chapman Adventure Playground, Gathering Place, Tulsa, Oklahoma, États-Unis (© Susan Vineyard/Alamy)](https://cn.bing.com/th?id=OHR.ChapmanAdventure_FR-FR6090877361_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
