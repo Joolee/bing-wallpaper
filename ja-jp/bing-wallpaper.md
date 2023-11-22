@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-23 | [ブラッドゲート・パーク, イギリス イングランド (© Chris Bainbridge/Alamy)](https://cn.bing.com/th?id=OHR.BradgateFallow_JA-JP4632580137_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-22 | [初冬の阿寒湖周辺, 北海道 釧路市 (© vladimir zakharov/Getty Images)](https://cn.bing.com/th?id=OHR.Xiaoxue2023_JA-JP4270732262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-21 | [ノーフォーク海岸, イギリス イングランド (© Vince Burton/Minden Pictures)](https://cn.bing.com/th?id=OHR.HelloSeal_JA-JP3912417099_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
