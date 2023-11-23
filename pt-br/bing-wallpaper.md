@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-24 | [Sunset at Teide National Park, Tenerife, Canary Islands, Spain (© Javier Martínez Morán/Alamy)](https://cn.bing.com/th?id=OHR.TeideNational_PT-BR6138267568_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-23 | [Plantas Pepalantus  Parque Nacional da Chapada dos Veadeiros, Goias, Brasil (© Cavan Images/Getty Images)](https://cn.bing.com/th?id=OHR.PepalantusPlants_PT-BR5920810931_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-22 | [Gray seal pup on the beach of Norfolk, England (© Vince Burton/Minden Pictures)](https://cn.bing.com/th?id=OHR.HelloSeal_PT-BR4000213831_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

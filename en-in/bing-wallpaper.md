@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-23 | [Beautiful foggy winter sunrise at Victoria Memorial, Kolkata, India. (© DebashisK/Shutterstock)](https://cn.bing.com/th?id=OHR.VictoriaMemorialIndia_EN-IN2578716156_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-22 | [Grand Teton National Park, Wyoming (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_EN-IN8458505185_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-21 | [Grey seal pup on the beach of Norfolk, England (© Vince Burton/Minden Pictures)](https://cn.bing.com/th?id=OHR.HelloSeal_EN-IN4183768158_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
