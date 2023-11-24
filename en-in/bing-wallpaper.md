@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-24 | [Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)](https://cn.bing.com/th?id=OHR.HallofMosses_EN-IN9360638768_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-23 | [Beautiful foggy winter sunrise at Victoria Memorial, Kolkata, India. (© DebashisK/Shutterstock)](https://cn.bing.com/th?id=OHR.VictoriaMemorialIndia_EN-IN2578716156_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-22 | [Grand Teton National Park, Wyoming (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_EN-IN8458505185_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
