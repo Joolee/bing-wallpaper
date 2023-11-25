@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-26 | [修善寺温泉街, 静岡県 伊豆市 (© JaCZhou 2015/Getty Images)](https://cn.bing.com/th?id=OHR.BathingDay2023_JA-JP8643192749_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-25 | [トレド, スペイン カスティーリャ＝ラ・マンチャ州 (© Carlos Fernandez/Getty Images)](https://cn.bing.com/th?id=OHR.TajoRiver_JA-JP5452234121_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-24 | [オリンピック国立公園の温帯雨林, 米国 ワシントン州 (© James Randklev/Getty Images)](https://cn.bing.com/th?id=OHR.HallofMosses_JA-JP4877057961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
