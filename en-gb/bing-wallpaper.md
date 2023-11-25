@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-26 | [Toledo, Spain (© Carlos Fernandez/Getty Images)](https://cn.bing.com/th?id=OHR.TajoRiver_EN-GB0539581472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-25 | [Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington, USA (© James Randklev/Getty Images)](https://cn.bing.com/th?id=OHR.HallofMosses_EN-GB0065099295_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-24 | [Teide National Park, Tenerife, Canary Islands, Spain (© Javier Martínez Morán/Alamy)](https://cn.bing.com/th?id=OHR.TeideNational_EN-GB3659708002_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

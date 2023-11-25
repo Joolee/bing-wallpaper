@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-25 | [Tolède, Espagne (© Carlos Fernandez/Getty Images)](https://cn.bing.com/th?id=OHR.TajoRiver_FR-FR5340325022_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-24 | [Sentier "Hall of Mosses" dans la forêt pluviale de Hoh, Parc national olympique, Washington, États-Unis (© James Randklev/Getty Images)](https://cn.bing.com/th?id=OHR.HallofMosses_FR-FR8097338401_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-23 | [Flamants roses au lever du soleil, Saintes-Maries-de-la-Mer, Parc Naturel Régional de Camargue, France (© Image via Shutterstock)](https://cn.bing.com/th?id=OHR.FlamingosSaintesMaries_FR-FR7852991785_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
