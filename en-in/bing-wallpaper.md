@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-26 | [Fallow deer in Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)](https://cn.bing.com/th?id=OHR.BradgateFallow_EN-IN7278653415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-25 | [Toledo, Spain (© Carlos Fernandez/Getty Images)](https://cn.bing.com/th?id=OHR.TajoRiver_EN-IN6966241723_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-24 | [Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)](https://cn.bing.com/th?id=OHR.HallofMosses_EN-IN9360638768_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
