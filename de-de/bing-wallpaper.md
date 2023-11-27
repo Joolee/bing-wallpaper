@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-27 | [Weihnachtsmarkt in Frankfurt am Main, Hessen (© Michael Abid/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.FrankfurtChristmasMarket_DE-DE3743491951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-26 | [Damhirsch im Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)](https://cn.bing.com/th?id=OHR.BradgateFallow_DE-DE3588733634_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-25 | [Toledo, Spanien (© Carlos Fernandez/Getty Images)](https://cn.bing.com/th?id=OHR.TajoRiver_DE-DE3120502310_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
