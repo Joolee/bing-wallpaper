@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-28 | [Fresco gigante del artista Saype en Estambul, Turquía (© Chris McGrath/Getty Images)](https://cn.bing.com/th?id=OHR.HumanKindness_ES-ES6358639283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-27 | [Río Negro, cuenca del Amazonas, Brasil (© Timothy Allen/Getty Images)](https://cn.bing.com/th?id=OHR.RioNegro_ES-ES6222339808_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-26 | [Gamos en el parque Bradgate, Leicestershire, Inglaterra (© Chris Bainbridge/Alamy)](https://cn.bing.com/th?id=OHR.BradgateFallow_ES-ES6106125152_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

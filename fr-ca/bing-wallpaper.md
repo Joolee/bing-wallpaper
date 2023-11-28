@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-29 | [Fresques géantes sur gazon créée par l’artiste Saype à Istanbul, Turquie (© Chris McGrath/Getty Images)](https://cn.bing.com/th?id=OHR.HumanKindness_FR-CA3736634672_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-28 | [Rio Negro, bassin amazonien, Brésil (© Timothy Allen/Getty Images)](https://cn.bing.com/th?id=OHR.RioNegro_FR-CA3404071331_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-27 | [Daim à Bradgate Park, Leicestershire, Angleterre (© Chris Bainbridge/Alamy)](https://cn.bing.com/th?id=OHR.BradgateFallow_FR-CA3032300696_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
