@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-02 | [Iceberg, Ross Sea, Antarctica (© Michel Roggo/Minden Pictures)](https://cn.bing.com/th?id=OHR.IcebergAntarctica_EN-GB4409581826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-01 | [Leadenhall Market, London (© Vittorio Caramazza/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.LeadenhallUK_EN-GB3042111411_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-30 | [Rockefeller Centre Christmas Tree, New York City, USA (© Jonathan Orenstein/Getty Images)](https://cn.bing.com/th?id=OHR.TreeLighting_EN-GB2794136797_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-01 | [Pradollano, Parque Nacional de Sierra Nevada, Granada, Andalucía, España (© iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.SierraNevadaGranada_ES-ES5604012292_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-11-30 | [El Storr, un afloramiento rocoso en la isla de Skye, Escocia, Reino Unido (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.TrotternishStorr_ES-ES6640552170_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-29 | [Árbol de Navidad del Rockefeller Center, Nueva York, EE.UU. (© Jonathan Orenstein/Getty Images)](https://cn.bing.com/th?id=OHR.TreeLighting_ES-ES6521457922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
