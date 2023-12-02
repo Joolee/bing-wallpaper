@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-02 | [Porta nord di Angkor Thom, Sito archeologico di Angkor, Cambogia  (© Amazing Travel Lifestyle/Shutterstock)](https://cn.bing.com/th?id=OHR.AngkorPark_IT-IT0676131866_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-01 | [Iceberg, Mare di Ross, Antartide (© Michel Roggo/Minden Pictures)](https://cn.bing.com/th?id=OHR.IcebergAntarctica_IT-IT9598451046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-30 | [Lo Storr, un affioramento roccioso sull'Isola di Skye, Scozia (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.TrotternishStorr_IT-IT5546138012_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

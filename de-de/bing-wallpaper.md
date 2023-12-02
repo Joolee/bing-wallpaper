@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-02 | [Nordtor von Angkor Thom, Archäologischer Park von Angkor, Kambodscha (© Amazing Travel Lifestyle/Shutterstock)](https://cn.bing.com/th?id=OHR.AngkorPark_DE-DE5680192070_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-01 | [Eisberg, Rossmeer, Antarktis (© Michel Roggo/Minden Pictures)](https://cn.bing.com/th?id=OHR.IcebergAntarctica_DE-DE5154867444_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-11-30 | [Der Old Man of Storr, eine Felsnadel auf der Isle of Skye, Schottland, UK (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.TrotternishStorr_DE-DE5333891461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
