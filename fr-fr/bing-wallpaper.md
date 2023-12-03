@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-03 | [Sandstone rock formations, Vermilion Cliffs National Monument, Arizona (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.VermilionCliffs_FR-FR2444985797_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-02 | [Porte nord d'Angkor Thom, Parc archéologique d'Angkor, Cambodge (© Amazing Travel Lifestyle/Shutterstock)](https://cn.bing.com/th?id=OHR.AngkorPark_FR-FR1945266452_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-01 | [Iceberg, mer de Ross, Antarctique (© Michel Roggo/Minden Pictures)](https://cn.bing.com/th?id=OHR.IcebergAntarctica_FR-FR1355397777_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

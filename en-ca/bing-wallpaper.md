@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-04 | [Sandstone rock formations, Vermilion Cliffs National Monument, Arizona (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.VermilionCliffs_EN-CA1719361824_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-03 | [North Gate of Angkor Thom, Angkor Archaeological Park, Cambodia (© Amazing Travel Lifestyle/Shutterstock)](https://cn.bing.com/th?id=OHR.AngkorPark_EN-CA3208481689_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-02 | [Lake Minnewanka, Alberta, Canada (© Ken Phung/500px/Getty Images)](https://cn.bing.com/th?id=OHR.MinnewankaLake_EN-CA2495233289_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

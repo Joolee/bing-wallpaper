@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-04 | [Castleton, Derbyshire, England (© Daveduke/Moment Open/Getty Images)](https://cn.bing.com/th?id=OHR.AdventSundayUK_EN-GB6836867238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-03 | [North Gate of Angkor Thom, Angkor Archaeological Park, Cambodia (© Amazing Travel Lifestyle/Shutterstock)](https://cn.bing.com/th?id=OHR.AngkorPark_EN-GB6520244831_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-02 | [Iceberg, Ross Sea, Antarctica (© Michel Roggo/Minden Pictures)](https://cn.bing.com/th?id=OHR.IcebergAntarctica_EN-GB4409581826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
