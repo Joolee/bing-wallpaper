@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-04 | [Eine Geparde-Mutter und ihre Jungen im Masai Mara Naturschutzgebiet, Kenia (© Scott Davis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CheetahDay_DE-DE1860675444_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-03 | [Die Adventszeit beginnt (© Muenz/Getty Images)](https://cn.bing.com/th?id=OHR.AdventCandles_DE-DE5745252681_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-02 | [Nordtor von Angkor Thom, Archäologischer Park von Angkor, Kambodscha (© Amazing Travel Lifestyle/Shutterstock)](https://cn.bing.com/th?id=OHR.AngkorPark_DE-DE5680192070_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
