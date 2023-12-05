@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-05 | [Schloss Neuschwanstein und Schloss Hohenschwangau, Bayerische Alpen (© Harald Nachtmann/Getty Images)](https://cn.bing.com/th?id=OHR.AlpsCastles_DE-DE6522289575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-04 | [Eine Geparde-Mutter und ihre Jungen im Masai Mara Naturschutzgebiet, Kenia (© Scott Davis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CheetahDay_DE-DE1860675444_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-03 | [Die Adventszeit beginnt (© Muenz/Getty Images)](https://cn.bing.com/th?id=OHR.AdventCandles_DE-DE5745252681_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

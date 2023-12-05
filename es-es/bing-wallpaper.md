@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-05 | [Castillos de Neuschwanstein y Hohenschwangau, Alpes bávaros, Alemania (© Harald Nachtmann/Getty Images)](https://cn.bing.com/th?id=OHR.AlpsCastles_ES-ES0525825978_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-04 | [Un guepardo madre y sus cachorros en la Reserva Nacional de Masai Mara, Kenia (© Scott Davis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CheetahDay_ES-ES3203875908_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-03 | [Formaciones rocosas de arenisca, Monumento Nacional Vermilion Cliffs, Arizona, EE.UU. (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.VermilionCliffs_ES-ES7943692512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
