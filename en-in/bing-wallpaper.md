@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-06 | [Beach with bungalow and coconut palm trees at Palolem in Goa, India. (© Pikoso.kz/Shutterstock)](https://cn.bing.com/th?id=OHR.PalolemGoa_EN-IN1818092671_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-05 | [Neuschwanstein and Hohenschwangau Castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)](https://cn.bing.com/th?id=OHR.AlpsCastles_EN-IN1720960592_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-04 | [A mother cheetah and her cubs in the Masai Mara National Reserve, Kenya (© Scott Davis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CheetahDay_EN-IN5126882099_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
