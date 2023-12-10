@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-10 | [Ultimi raggi di sole su un gruppo di dune, Sahara, Algeria (© AWL Images/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.SaharaDunes_IT-IT4256845784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-09 | [Luci di Natale a Torbole, Trento (© Danny Iacob/Shutterstock)](https://cn.bing.com/th?id=OHR.TorboleTrento_IT-IT9651438497_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-08 | [Porto di La Rocque, St. Clement, Isola di Jersey (© Reinhard Schmid/Huber/eStock Photo)](https://cn.bing.com/th?id=OHR.JerseyIsland_IT-IT8142541047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

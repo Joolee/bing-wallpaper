@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-10 | [Sonnenstrahlen in einer Dünenlandschaft, Sahara, Algerien (© AWL Images/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.SaharaDunes_DE-DE6555086402_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-09 | [Guanakos, Nationalpark Los Glaciares, Patagonien, Argentinien (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_DE-DE6032198626_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-08 | [Souvenirverkauf auf dem Christkindlesmarkt, Nürnberg (© AlpKaya/Shutterstock)](https://cn.bing.com/th?id=OHR.NurnbergSouvenir_DE-DE5480513127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
