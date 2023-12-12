@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-12 | [Stella rossa di Natale (© Yarygin/Getty Images)](https://cn.bing.com/th?id=OHR.Poinsettia_IT-IT8682059998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-11 | [L'inverno sui monti Huangshan, in Cina (© Hung Chung Chih/Shutterstock)](https://cn.bing.com/th?id=OHR.MountainDayChina_IT-IT9771013774_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-10 | [Ultimi raggi di sole su un gruppo di dune, Sahara, Algeria (© AWL Images/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.SaharaDunes_IT-IT4256845784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
