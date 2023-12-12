@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-13 | [スボールバル, ノルウェー (© Roberto Moiola/Sysaworld/Getty Images)](https://cn.bing.com/th?id=OHR.LofotenRorbu_JA-JP0645776855_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-12 | [ポインセチア (© Yarygin/Getty Images)](https://cn.bing.com/th?id=OHR.Poinsettia_JA-JP0391640145_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-11 | [冬の黄山, 中国 安徽省 (© Hung Chung Chih/Shutterstock)](https://cn.bing.com/th?id=OHR.MountainDayChina_JA-JP0160517596_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
