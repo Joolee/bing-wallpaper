@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-13 | [Cabañas de pesca tradicionales, Svolvaer, Islas Lofoten, Noruega (© Roberto Moiola/Sysaworld/Getty Images)](https://cn.bing.com/th?id=OHR.LofotenRorbu_ES-ES5389345078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-12 | [Flor de Pascua roja (© Yarygin/Getty Images)](https://cn.bing.com/th?id=OHR.Poinsettia_ES-ES5279061856_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-11 | [Invierno en las montañas de Huangshan, China (© Hung Chung Chih/Shutterstock)](https://cn.bing.com/th?id=OHR.MountainDayChina_ES-ES0104105727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
