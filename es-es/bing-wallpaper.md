@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-15 | [Parque de Santa Claus en Rovaniemi, Laponia, Finlandia (© lukutin77/Getty Images)](https://cn.bing.com/th?id=OHR.SantaPark_ES-ES1775631224_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-14 | [Búho boreal, Saskatchewan, Canadá (© Nick Saunders/Minden Pictures)](https://cn.bing.com/th?id=OHR.BorealOwl_ES-ES9940337262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-13 | [Cabañas de pesca tradicionales, Svolvaer, Islas Lofoten, Noruega (© Roberto Moiola/Sysaworld/Getty Images)](https://cn.bing.com/th?id=OHR.LofotenRorbu_ES-ES5389345078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

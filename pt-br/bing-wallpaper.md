@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-16 | [Parque do Papai Noel em Rovaniemi, Lapônia, Finlândia (© lukutin77/Getty Images)](https://cn.bing.com/th?id=OHR.SantaPark_PT-BR7158729653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-15 | [Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)](https://cn.bing.com/th?id=OHR.BorealOwl_PT-BR1424303006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-14 | [Cachoeira da Fumacinha, Chapada Diamantina Mountains, Bahia, Brazil (© Rtzstudio/Shutterstock)](https://cn.bing.com/th?id=OHR.ChapadaDiamantina_PT-BR0912635874_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
