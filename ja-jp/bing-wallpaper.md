@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-17 | [枝に止まるキレンジャク, カナダ (© Jim Cumming/Shutterstock)](https://cn.bing.com/th?id=OHR.WinterWaxwings_JA-JP9441530604_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-16 | [グラン・プラス, ベルギー ブリュッセル (© Richard Taylor/Sime/eStock Photo)](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_JA-JP8582950407_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-15 | [サンタパーク, フィンランド ロヴァニエミ (© lukutin77/Getty Images)](https://cn.bing.com/th?id=OHR.SantaPark_JA-JP8169777943_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
