@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-16 | [Guild houses of Grand-Place, Brussels, Belgium (© Richard Taylor/Sime/eStock Photo)](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_EN-IN1825701636_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-15 | [SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)](https://cn.bing.com/th?id=OHR.SantaPark_EN-IN0838447771_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-14 | [Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)](https://cn.bing.com/th?id=OHR.BorealOwl_EN-IN2428329798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
