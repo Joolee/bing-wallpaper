@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-18 | [Asas de cera da Boêmia empoleiradas em um galho, Canadá (© Jim Cumming/Shutterstock)](https://cn.bing.com/th?id=OHR.WinterWaxwings_PT-BR7478795667_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-17 | [Casas da Guilda da Grand-Place, Bruxelas, Bélgica (© Richard Taylor/Sime/eStock Photo)](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_PT-BR7345216772_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-16 | [Parque do Papai Noel em Rovaniemi, Lapônia, Finlândia (© lukutin77/Getty Images)](https://cn.bing.com/th?id=OHR.SantaPark_PT-BR7158729653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
