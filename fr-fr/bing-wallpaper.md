@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-19 | [Arbre de Noël sur la place du château, vieille ville, Varsovie, Pologne (© Panther Media GmbH/Alamy)](https://cn.bing.com/th?id=OHR.WarsawChristmas_FR-FR2276037087_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-18 | [Station de ski du col des Saisies à l'aube, Beaufortain, Savoie, France (© SPANI Arnaud/hemis.fr/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.Beaufortain_FR-FR7561012950_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-17 | [Jaseur boréal perché sur une branche, Canada (© Jim Cumming/Shutterstock)](https://cn.bing.com/th?id=OHR.WinterWaxwings_FR-FR2348728059_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
