@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-21 | [リュブリャナ, スロベニア (© kasto80/Getty images)](https://cn.bing.com/th?id=OHR.LjubljanaLights_JA-JP9081354484_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-20 | [ヴァル・ガルデーナ, イタリア (© Ingus Kruklitis/Getty Images)](https://cn.bing.com/th?id=OHR.ValGardenaItaly_JA-JP2238333845_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-19 | [ワルシャワの旧市街, ポーランド (© Panther Media GmbH/Alamy)](https://cn.bing.com/th?id=OHR.WarsawChristmas_JA-JP1330837754_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
