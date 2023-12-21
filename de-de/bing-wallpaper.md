@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-21 | [Ljubljana, Slowenien (© kasto80/Getty images)](https://cn.bing.com/th?id=OHR.LjubljanaLights_DE-DE1296563106_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-20 | [Dorf in Gröden zu Weihnachten, Dolomiten, Italien (© Ingus Kruklitis/Getty Images)](https://cn.bing.com/th?id=OHR.ValGardenaItaly_DE-DE0637629816_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-19 | [Weihnachtsbaum auf dem Schlossplatz, Altstadt, Warschau, Polen (© Panther Media GmbH/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.WarsawChristmas_DE-DE0154947188_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
