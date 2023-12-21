@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-22 | [青い池, 北海道 美瑛町 (© Haruna/Getty Images)](https://cn.bing.com/th?id=OHR.Wintersolstice2023_JA-JP9488437005_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-21 | [リュブリャナ, スロベニア (© kasto80/Getty images)](https://cn.bing.com/th?id=OHR.LjubljanaLights_JA-JP9081354484_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-20 | [ヴァル・ガルデーナ, イタリア (© Ingus Kruklitis/Getty Images)](https://cn.bing.com/th?id=OHR.ValGardenaItaly_JA-JP2238333845_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
