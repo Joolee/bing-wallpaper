@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-23 | [Ljubljana, Slovenia (© kasto80/Getty images)](https://cn.bing.com/th?id=OHR.LjubljanaLights_EN-CA1534198321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-22 | [Castlerigg Stone Circle near Keswick, Lake District National Park, Cumbria, United Kingdom (© John Finney Photography/Getty Images)](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_EN-CA9940011631_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-21 | [Village in Val Gardena at Christmas, Dolomites, Italy (© Ingus Kruklitis/Getty Images)](https://cn.bing.com/th?id=OHR.ValGardenaItaly_EN-CA9038547102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

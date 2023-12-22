@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-22 | [Riaño, León, Castilla y León, España (© Raul Villalon/Shutterstock)](https://cn.bing.com/th?id=OHR.WinterSolstice_ES-ES7825369117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-21 | [Liubliana, Eslovenia (© kasto80/Getty images)](https://cn.bing.com/th?id=OHR.LjubljanaLights_ES-ES3058445591_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-20 | [Pueblo de Val Gardena en Navidad, Dolomitas, Italia (© Ingus Kruklitis/Getty Images)](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ES-ES2933649744_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

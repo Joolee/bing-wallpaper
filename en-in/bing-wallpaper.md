@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-22 | [Red Fort Delhi historic monument at sunrise with flying pigeons (© Roop Dey/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.RedFortDelhi_EN-IN3982983147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-21 | [Ljubljana, Slovenia (© kasto80/Getty images)](https://cn.bing.com/th?id=OHR.LjubljanaLights_EN-IN3699052507_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-20 | [Village in Val Gardena at Christmas, Dolomites, Italy (© Ingus Kruklitis/Getty Images)](https://cn.bing.com/th?id=OHR.ValGardenaItaly_EN-IN2770254332_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
