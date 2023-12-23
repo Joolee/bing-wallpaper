@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-23 | [Manchots à jugulaire, îles Sandwich du Sud, océan Atlantique Sud (© Jan Vermeer/Minden Pictures)](https://cn.bing.com/th?id=OHR.FestivusPenguins_FR-FR4244677283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-22 | [Enceinte mégalithique de Castlerigg, parc national du Lake District, Angleterre (© John Finney Photography/Getty Images)](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_FR-FR4020990017_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-21 | [Ljubljana, Slovénie (© kasto80/Getty images)](https://cn.bing.com/th?id=OHR.LjubljanaLights_FR-FR3780217998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
