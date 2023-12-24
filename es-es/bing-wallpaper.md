@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-24 | [XII Carrera Solidaria de Papá Noel en Madrid, España (© Marcos del Mazo/Alamy Foto de stock)](https://cn.bing.com/th?id=OHR.SantaClausRace_ES-ES7942033287_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-23 | [Pingüinos barbijo, Islas Sandwich del Sur, Océano Atlántico Sur (© Jan Vermeer/Minden Pictures)](https://cn.bing.com/th?id=OHR.FestivusPenguins_ES-ES4832122757_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-22 | [Riaño, León, Castilla y León, España (© Raul Villalon/Shutterstock)](https://cn.bing.com/th?id=OHR.WinterSolstice_ES-ES7825369117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

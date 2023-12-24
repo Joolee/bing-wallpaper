@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-25 | [Place de l'hôtel de ville, Tartu, Estonie (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_FR-CA7991687338_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-24 | [Manchots à jugulaire, îles Sandwich du Sud, océan Atlantique Sud (© Jan Vermeer/Minden Pictures)](https://cn.bing.com/th?id=OHR.FestivusPenguins_FR-CA7854674998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-23 | [Ljubljana, Slovénie (© kasto80/Getty images)](https://cn.bing.com/th?id=OHR.LjubljanaLights_FR-CA7668985686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

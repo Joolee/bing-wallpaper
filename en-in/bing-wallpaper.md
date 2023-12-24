@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-24 | [Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_EN-IN6293418304_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-23 | [Chinstrap penguins, South Sandwich Islands, South Atlantic Ocean (© Jan Vermeer/Minden Pictures)](https://cn.bing.com/th?id=OHR.FestivusPenguins_EN-IN5922835342_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-22 | [Red Fort Delhi historic monument at sunrise with flying pigeons (© Roop Dey/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.RedFortDelhi_EN-IN3982983147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
