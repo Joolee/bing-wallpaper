@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-25 | [トナカイ, 米国 アラスカ州 (© Michael Quinton/Minden Pictures)](https://cn.bing.com/th?id=OHR.CaribouChristmas_JA-JP0784356200_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-24 | [クリスマスツリーで彩られた広場, エストニア タルトゥ (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_JA-JP0366507453_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-23 | [けやき坂のイルミネーション, 東京 (© Photography by ZhangXun/Getty Images)](https://cn.bing.com/th?id=OHR.TokyoTower2023_JA-JP0066858338_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
