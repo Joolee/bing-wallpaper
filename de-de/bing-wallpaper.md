@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-25 | [Karibu auf der Flucht im Schnee, Alaska, USA (© Michael Quinton/Minden Pictures)](https://cn.bing.com/th?id=OHR.CaribouChristmas_DE-DE4610798173_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-24 | [Rathausplatz, Tartu, Estland (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_DE-DE2504382922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-23 | [Berge, die sich in einem kristallklaren Bergsee spiegeln, Alpen Deutschland (© JFL Photography/Adobe Stock)](https://cn.bing.com/th?id=OHR.AlpsReflecting_DE-DE8445668418_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

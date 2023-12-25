@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-26 | [Toronto Christmas market at the Distillery District (© Praveen P.N/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.ChristmasCA_EN-CA0839691287_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-25 | [Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_EN-CA2639551026_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-24 | [Chinstrap penguins, South Sandwich Islands, South Atlantic Ocean (© Jan Vermeer/Minden Pictures)](https://cn.bing.com/th?id=OHR.FestivusPenguins_EN-CA2075026889_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

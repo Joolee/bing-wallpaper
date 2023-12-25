@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-25 | [Caribou che corrono nella neve, Alaska, USA (© Michael Quinton/Minden Pictures)](https://cn.bing.com/th?id=OHR.CaribouChristmas_IT-IT1422624453_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-24 | [Albero di Natale in Piazza del Duomo, Milano (© Marco Bonfanti/Getty Images)](https://cn.bing.com/th?id=OHR.MilanXmasTree_IT-IT2035512778_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-23 | [Pinguini con mascherina, Isole Sandwich del Sud, Oceano Atlantico Meridionale (© Jan Vermeer/Minden Pictures)](https://cn.bing.com/th?id=OHR.FestivusPenguins_IT-IT2939175390_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-26 | [Caribu correndo na neve, Alasca, EUA (© Michael Quinton/Minden Pictures)](https://cn.bing.com/th?id=OHR.CaribouChristmas_PT-BR2682904328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-25 | [Praça da Câmara Municipal, Tartu, Estônia (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_PT-BR8966974749_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-24 | [Pinguins Chinstrap, Ilhas Sandwich do Sul, Oceano Atlântico Sul (© Jan Vermeer/Minden Pictures)](https://cn.bing.com/th?id=OHR.FestivusPenguins_PT-BR8893075864_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-25 | [Rennes courant dans la neige, Alaska, États-Unis (© Michael Quinton/Minden Pictures)](https://cn.bing.com/th?id=OHR.CaribouChristmas_FR-FR4671431389_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-24 | [Place de l'hôtel de ville, Tartu, Estonie (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_FR-FR4500138277_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-23 | [Manchots à jugulaire, îles Sandwich du Sud, océan Atlantique Sud (© Jan Vermeer/Minden Pictures)](https://cn.bing.com/th?id=OHR.FestivusPenguins_FR-FR4244677283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
