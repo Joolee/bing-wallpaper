@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-28 | [Kirkjufell, péninsule de Snæfellsnes, Islande (© Ratnakorn Piyasirisorost/Getty Images)](https://cn.bing.com/th?id=OHR.KirkjufellAurora_FR-CA8140092219_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-27 | [Lumières de Noël sur les arbres au crépuscule, Vancouver, Canada (© Stuart Dee/Getty Images)](https://cn.bing.com/th?id=OHR.BoxingDayCA_FR-CA0734664319_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-26 | [Marché de Noël de Toronto dans le Distillery (© Praveen P.N/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.ChristmasCA_FR-CA3088980014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

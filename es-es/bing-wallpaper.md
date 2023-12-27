@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-27 | [Kirkjufell, península de Snæfellsnes, Islandia (© Ratnakorn Piyasirisorost/Getty Images)](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ES-ES5949558087_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-26 | [Amanecer de invierno en Dedham, Colchester, Inglaterra (© George W Johnson/Getty Images)](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ES-ES5793885538_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-25 | [Renos corriendo en la nieve, Alaska, EE.UU. (© Michael Quinton/Minden Pictures)](https://cn.bing.com/th?id=OHR.CaribouChristmas_ES-ES3276202379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
