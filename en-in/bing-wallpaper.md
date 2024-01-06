@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-06 | [Male chaffinch perched on a crab apple tree in winter (© Mark Hamblin/2020VISION/Minden Pictures)](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_EN-IN8958634852_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-05 | [International Ice and Snow Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)](https://cn.bing.com/th?id=OHR.HarbinFestival_EN-IN5886314487_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-04 | [Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.GoldenGateLight_EN-IN5018210556_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
