@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-08 | [Karlu Karlu, Réserve de conservation des billes du diable, Australie (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.DevilsMarbles_FR-CA0294680098_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-07 | [Lacs Vermilion, Banff, Canada (© Carlos Fernandez/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.VermilionLakesCA_FR-CA0230229812_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-06 | [Festival international de la glace et de la neige, Harbin, Chine (© WANG ZHAO/AFP/Getty Images)](https://cn.bing.com/th?id=OHR.HarbinFestival_FR-CA0128827383_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
