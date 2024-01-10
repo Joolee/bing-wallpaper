@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-10 | [Stairs on the shoreline at Mylopotamos, Thessaly, Greece (© Orestis Zoumpos/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.MilopotamosStairs_EN-IN7483499264_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-09 | [Gayathri Reservoir, near Chitradurga, Karnataka, India. (© Amith Nag Photography/Getty images)](https://cn.bing.com/th?id=OHR.GayathriReservoir_EN-IN7178721819_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-08 | [Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)](https://cn.bing.com/th?id=OHR.BerninaPass_EN-IN9489085308_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
