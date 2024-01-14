@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-15 | [Cygnes chanteurs sur le lac Kussharo, Japon (© Darrell Gulin/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.HokkaidoSwans_FR-CA8449575039_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-14 | [Route d’Hana, Maui, Hawaï, États-Unis (© Matteo Colombo/Getty Images)](https://cn.bing.com/th?id=OHR.HanaHighway_FR-CA8279096953_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-13 | [Parc national de Bukhansan, Corée du Sud (© TRAVEL TAKE PHOTOS/Shutterstock)](https://cn.bing.com/th?id=OHR.BukhansanSeoul_FR-CA8033910108_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
