@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-21 | [Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_EN-IN3567633626_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-20 | [Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)](https://cn.bing.com/th?id=OHR.MacaroniPenguins_EN-IN3516700130_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-19 | [Frozen waterfalls in Plitvice Lakes National Park, Croatia (© Massimo_S8/Getty Images)](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-IN3453026370_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
