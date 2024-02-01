@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-01 | [Aýna, Sierra del Segura, Albacete, Spain (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.AlbaceteSpain_EN-IN7833370046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-31 | [Burchell's zebra mother and foal, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)](https://cn.bing.com/th?id=OHR.ZebraMother_EN-IN5092330040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-30 | [The biggest Mahatma Gandhi statue in Pondicherry (© Geraint Rowland Photography/Getty Images)](https://cn.bing.com/th?id=OHR.MartyrsDayIndia_EN-IN0212578144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

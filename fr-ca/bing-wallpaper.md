@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-02 | [Ours polaire se reposant dans un paysage rocheux, Churchill, Manitoba, Canada (© Warwick Sloss/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.PolarBearResting_FR-CA9620717871_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-01 | [Zèbre de Burchell, mère et poulain, réserve naturelle de Rietvlei, Afrique du Sud (© Richard Du Toit/Minden Pictures)](https://cn.bing.com/th?id=OHR.ZebraMother_FR-CA9105263189_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-31 | [Ayna, Sierra del Segura, Albacete, Espagne (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.AlbaceteSpain_FR-CA8897837933_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
