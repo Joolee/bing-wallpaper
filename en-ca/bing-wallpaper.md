@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-06 | [Monarch butterflies, Goleta, California (© Craig Rademacher/500px/Getty Images)](https://cn.bing.com/th?id=OHR.WesternMonarchs_EN-CA8984177502_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-05 | [Devetashka Cave, Devetaki, Bulgaria (© Jasmine_K/Shutterstock)](https://cn.bing.com/th?id=OHR.DevetashkaCave_EN-CA8463876587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-04 | [Grand Canal with Santa Maria della Salute Basilica, Venice, Italy (© RudyBalasko/Getty Images)](https://cn.bing.com/th?id=OHR.VeniceCarnival_EN-CA6952595952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
