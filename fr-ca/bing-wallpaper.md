@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-16 | [Mère hippopotame et son petit, parc national de South Luangwa, Zambie (© Nature Picture Library/Alamy)](https://cn.bing.com/th?id=OHR.HippopotamusDay_FR-CA8953449236_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-15 | [Grue du Japon s'inclinant devant son compagnon à Hokkaido, Japon (© Steve Bloom Images/Alamy)](https://cn.bing.com/th?id=OHR.BowingCrane_FR-CA8809114758_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-14 | [Perles de Mardi Gras dans le quartier de Marigny, Nouvelle-Orléans, États-Unis (© Erik Pronske Photography/Getty Images)](https://cn.bing.com/th?id=OHR.MarignyBeads_FR-CA8649408883_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
