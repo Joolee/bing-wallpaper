@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-17 | [Kailasa temple in Ellora caves complex in India (© mazzzur/Getty Images)](https://cn.bing.com/th?id=OHR.KailasTempleEllora_EN-IN9221534487_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-16 | [Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)](https://cn.bing.com/th?id=OHR.BackyardBird_EN-IN0575498831_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-15 | [Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-IN0488110772_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

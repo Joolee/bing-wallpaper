@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-18 | [Phare de Sassnitz, Rügen, Mecklembourg-Poméranie-Occidentale,  Allemagne (© Christian Back/eStock)](https://cn.bing.com/th?id=OHR.HalbinselJasmund_FR-CA9499898672_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-17 | [Oiseau cardinal pyrrhuloxia perché sur un cactus épineux au Texas, États-Unis (© outtakes/Getty Images)](https://cn.bing.com/th?id=OHR.BackyardBird_FR-CA2494607716_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-16 | [Mère hippopotame et son petit, parc national de South Luangwa, Zambie (© Nature Picture Library/Alamy)](https://cn.bing.com/th?id=OHR.HippopotamusDay_FR-CA8953449236_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

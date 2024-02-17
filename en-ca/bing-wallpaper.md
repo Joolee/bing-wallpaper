@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-18 | [Sassnitz lighthouse on Rügen island, Germany (© Christian Back/eStock)](https://cn.bing.com/th?id=OHR.HalbinselJasmund_EN-CA5327600383_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-17 | [Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)](https://cn.bing.com/th?id=OHR.BackyardBird_EN-CA9775079263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-16 | [Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-CA3448449315_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
