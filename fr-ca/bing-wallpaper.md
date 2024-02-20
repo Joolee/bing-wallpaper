@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-21 | [Sommet de Kinder Scout, Parc national du Peak District, Royaume-Uni (© john finney photography/Getty Images)](https://cn.bing.com/th?id=OHR.PeakDistrictNP_FR-CA0904353347_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-20 | [Groupe de  grand cachalots, île de la Dominique (© Franco Banfi/Minden Pictures)](https://cn.bing.com/th?id=OHR.DominicaWhales_FR-CA0090567562_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-19 | [Maisons colorées, Puerto de la Cruz, Tenerife, Espagne (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.CarnavalTenerife_FR-CA9707802936_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
