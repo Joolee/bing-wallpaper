@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-28 | [Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)](https://cn.bing.com/th?id=OHR.BamburghCastleUK_EN-IN2760491461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-27 | [Polar bear cubs playing, Kaktovik, Alaska (© Piriya Photography/Getty Images)](https://cn.bing.com/th?id=OHR.PolarBearCubs_EN-IN7268694911_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-26 | [Tiger family a stroll one early morning at Ranthambhore National Park, Rajasthan, India (© Archna Singh/Shutterstock)](https://cn.bing.com/th?id=OHR.TigerMom_EN-IN2824299934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
