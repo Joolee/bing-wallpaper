@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-02 | [Coucher de soleil sur la rivière glacée Wheaton, Yukon, Canada (© Robert Postma/All Canada Photos/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.WheatonRiverYukon_FR-CA1750282426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-01 | [Écureuil roux d'Europe (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.LeapingSquirrel_FR-CA0527057560_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-29 | [Château de Bamburgh, Northumberland, Angleterre (© Blackbeck/Getty Images)](https://cn.bing.com/th?id=OHR.BamburghCastleUK_FR-CA0361606003_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
