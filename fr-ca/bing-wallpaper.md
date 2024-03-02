@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-03 | [Modica, Sicile, Italie (© Sandro Bisaro/Getty Images)](https://cn.bing.com/th?id=OHR.ModicaItaly_FR-CA4861122152_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-02 | [Coucher de soleil sur la rivière glacée Wheaton, Yukon, Canada (© Robert Postma/All Canada Photos/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.WheatonRiverYukon_FR-CA1750282426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-01 | [Écureuil roux d'Europe (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.LeapingSquirrel_FR-CA0527057560_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
