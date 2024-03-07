@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-08 | [Roques de Benet, parc naturel Els Ports, Catalogne, Espagne (© Sergi Boixader/Alamy)](https://cn.bing.com/th?id=OHR.TarragonaSpain_FR-CA5706201102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-07 | [Cascade de Wahclella dans les gorges du fleuve Columbia, Oregon, États-Unis (© Eric Vogt/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.WahclellaFalls_FR-CA5508571587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-06 | [Rond-point et autoroute à Bangkok, Thaïlande (© Avigator Fortuner/Shutterstock)](https://cn.bing.com/th?id=OHR.BangkokCircle_FR-CA5359064809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
