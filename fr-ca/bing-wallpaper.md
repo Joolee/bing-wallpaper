@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-12 | [Un koala dormant sur un Eucalyptus, Australie (© Anton Rogozin/Getty Images)](https://cn.bing.com/th?id=OHR.SleepyKoala_FR-CA7476339707_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-11 | [Horloge de San Jacinto, Beaumont, Texas, États-Unis (© Richard T. Nowitz/Getty Images)](https://cn.bing.com/th?id=OHR.BeaumontClock_FR-CA7147166599_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-10 | [Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BistiBlue_FR-CA0558895041_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
