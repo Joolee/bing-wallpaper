@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-20 | [カウチンバレー, カナダ ブリティッシュコロンビア州 (© Kevin Oke/Alamy)](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_JA-JP5482628998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-19 | [ブライスキャニオン国立公園, 米国 ユタ州 (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BryceSnow_JA-JP4938121574_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-18 | [アルウラにある��レファントロック, サウジアラビア (© Lubo Ivanko/Shutterstock)](https://cn.bing.com/th?id=OHR.ElephantRock_JA-JP4769472131_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
