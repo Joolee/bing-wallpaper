@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-23 | [Gros nuages en forme d'enclume au-dessus de l'Amazonie au Brésil (© NASA)](https://cn.bing.com/th?id=OHR.AmazonClouds_FR-FR8491787407_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-22 | [Blue Spring, sentier de Te Waihou, Nouvelle-Zélande (© Ian Beattie/Alamy)](https://cn.bing.com/th?id=OHR.WaikatoWater_FR-FR8437603608_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-21 | [Forêt Impénétrable de Bwindi, Ouganda (© Art Wolfe/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.BwindiNationalForest_FR-FR4997320861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
