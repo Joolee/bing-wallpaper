@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-26 | [Fête des couleurs de Holi, Inde (© Avishek Das/SOPA Images/LightRocket via Getty Images)](https://cn.bing.com/th?id=OHR.ColorfulHoli_FR-CA7316925467_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-25 | [Zostérops du Japon sur une branche de cerisier en fleur, Corée du Sud (© TigerSeo/Getty Images)](https://cn.bing.com/th?id=OHR.WhiteEyes_FR-CA7033584242_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-24 | [Gros nuages en forme d'enclume au-dessus de l'Amazonie au Brésil (© NASA)](https://cn.bing.com/th?id=OHR.AmazonClouds_FR-CA6891060570_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
