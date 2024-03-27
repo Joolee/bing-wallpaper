@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-27 | [An evening at the Amber Fort, near Jaipur, India (© Amith Nag Photography/Getty Images)](https://cn.bing.com/th?id=OHR.AmerFortJaipur_EN-IN2082526909_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-26 | [Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)](https://cn.bing.com/th?id=OHR.HangRaiVietnam_EN-IN1740946404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-25 | [Celebrating Holi in Mathura, Uttar Pradesh, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)](https://cn.bing.com/th?id=OHR.ColorfulHoli_EN-IN1408702608_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

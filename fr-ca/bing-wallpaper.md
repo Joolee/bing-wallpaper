@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-28 | [Théâtre Colón à Buenos Aires, Argentine (© Wei Hao Ho/Alamy)](https://cn.bing.com/th?id=OHR.TeatroColon_FR-CA7881984396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-27 | [Eau de mer en cascade sur un ancien récif corallien, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)](https://cn.bing.com/th?id=OHR.HangRaiVietnam_FR-CA7557188364_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-26 | [Fête des couleurs de Holi, Inde (© Avishek Das/SOPA Images/LightRocket via Getty Images)](https://cn.bing.com/th?id=OHR.ColorfulHoli_FR-CA7316925467_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
