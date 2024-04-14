@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-15 | [Sunset on Bowling Ball Beach, Mendocino County, California (© Melo Qiao/Getty Images)](https://cn.bing.com/th?id=OHR.BowlingBallCali_EN-CA4907440607_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-14 | [Cherry blossoms in Queen Elizabeth Park, Vancouver (© Yun Han Xu/Moment Open/Getty Images)](https://cn.bing.com/th?id=OHR.SakuraDaysJapanFair_EN-CA3687472576_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-13 | [Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)](https://cn.bing.com/th?id=OHR.SunsetArchesNP_EN-CA3137398130_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
