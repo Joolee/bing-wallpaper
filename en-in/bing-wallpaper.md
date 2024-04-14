@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-15 | [The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)](https://cn.bing.com/th?id=OHR.RedBallBelgium_EN-IN8566227276_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-14 | [Sunset on Bowling Ball Beach, Mendocino County, California (© Melo Qiao/Getty Images)](https://cn.bing.com/th?id=OHR.BowlingBallCali_EN-IN9555671935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-13 | [Apple trees in spring, Germany (© Smileus/Getty Images)](https://cn.bing.com/th?id=OHR.SpringApple_EN-IN6919337165_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
