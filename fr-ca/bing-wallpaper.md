@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-16 | [Le RedBall Project, œuvre d’art itinérante, Gare centrale, Anvers, Belgique (© Brit Worgan/Getty Images)](https://cn.bing.com/th?id=OHR.RedBallBelgium_FR-CA3335673645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-15 | [Coucher de soleil sur la plage de Bowling Ball, Californie, États-Unis (© Melo Qiao/Getty Images)](https://cn.bing.com/th?id=OHR.BowlingBallCali_FR-CA3180115250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-14 | [Cerisiers en fleur, parc Queen Elizabeth, Vancouver, Canada (© Yun Han Xu/Moment Open/Getty Images)](https://cn.bing.com/th?id=OHR.SakuraDaysJapanFair_FR-CA3620667456_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
