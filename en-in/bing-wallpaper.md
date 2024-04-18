@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-18 | [Mediaeval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)](https://cn.bing.com/th?id=OHR.AvilaSpain_EN-IN0356835550_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-17 | [Ram Mandir, Ayodhya, Uttar Pradesh (© Ritesh Shukla/Stringer/Getty Images)](https://cn.bing.com/th?id=OHR.RamaNavami_EN-IN9596495490_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-16 | [Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)](https://cn.bing.com/th?id=OHR.UnionSquareNYC_EN-IN8922742719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
