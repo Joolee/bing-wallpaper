@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-24 | [White trillium blooming in Ontario, Canada (© Jun Zhang/Getty Images)](https://cn.bing.com/th?id=OHR.TrilliumOntario_EN-IN9010046711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-23 | [Library of Trinity College Dublin, Ireland (© Lukas Bischoff/Getty Images)](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-IN8692006945_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-22 | [Green sea turtle, San Diego, California (© Ralph Pace/Minden Pictures)](https://cn.bing.com/th?id=OHR.EarthDayTurtle_EN-IN8345337323_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
