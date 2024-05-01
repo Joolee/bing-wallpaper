@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-02 | [Colliers de fleurs hawaïens (© Jotika Pun/Shutterstock)](https://cn.bing.com/th?id=OHR.HawaiianLei_FR-CA7527008794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-01 | [Guépard sous la pluie, plaines de Ndutu, zone de conservation du Ngorongoro, Tanzanie (© Paul Souders/Getty Images)](https://cn.bing.com/th?id=OHR.CheetahRain_FR-CA7368056327_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-30 | [Architectures traditionnelles Tulou de Fujian, province de Fujian, Chine (© Hongjie Han/Getty Images)](https://cn.bing.com/th?id=OHR.TulouFujian_FR-CA7213796326_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
