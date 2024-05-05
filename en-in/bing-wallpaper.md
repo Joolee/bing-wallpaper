@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-05 | [Beautiful aerial view of Kerala (© ebin francis/Shutterstock)](https://cn.bing.com/th?id=OHR.KeralaRiver_EN-IN0661487977_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-04 | [The ruins of an ancient monastery on the island of Skellig Michael, Ireland (© MNStudio/Getty Images)](https://cn.bing.com/th?id=OHR.JediMonastery_EN-IN0109731817_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-03 | [Brittlebushes blooming in springtime, Sonoran Desert, Arizona (© Charles Harker/Getty Images)](https://cn.bing.com/th?id=OHR.SonoranSpring_EN-IN9627232224_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

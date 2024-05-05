@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-06 | [Colonnade à San Miguel de Allende, Guanajuato, Mexique (© Mint Images/Getty Images)](https://cn.bing.com/th?id=OHR.SanMiguelAllende_FR-CA8646700172_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-05 | [Ruines d'un ancien monastère sur l'île de Skellig Michael, Irlande (© MNStudio/Getty Images)](https://cn.bing.com/th?id=OHR.JediMonastery_FR-CA8250479860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-04 | [Encelia farinose en fleur dans le désert de Sonora, Arizona, États-Unis (© Charles Harker/Getty Images)](https://cn.bing.com/th?id=OHR.SonoranSpring_FR-CA8061697646_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
