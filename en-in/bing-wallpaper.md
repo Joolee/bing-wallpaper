@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-12 | [Guanaco female and newborn baby in grassland, La Pampa Province, Argentina (© Gabriel Rojo/Minden Pictures)](https://cn.bing.com/th?id=OHR.GuanacoMother_EN-IN2535708890_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-11 | [An indigo bunting perched on a branch, Texas (© Jeff R Clow/Getty Images)](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_EN-IN8017166670_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-10 | [Misool, Raja Ampat Islands, Indonesia (© Giordano Cipriani/Getty Images)](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_EN-IN2026681829_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
