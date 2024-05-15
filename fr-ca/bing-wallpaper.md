@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-16 | [La ville bleue de Jodhpur, Inde (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.BlueCityIndia_FR-CA2855187292_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-15 | [Parc national des grottes de Carlsbad, Nouveau-Mexique, États-Unis (© Doug Meek/Getty Images)](https://cn.bing.com/th?id=OHR.CarlsbadNP_FR-CA2715604410_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-14 | [Canyon de la rivière Fish, Namibie (© R. M. Nunes/Getty Images)](https://cn.bing.com/th?id=OHR.NamibiaCanyon_FR-CA2544302315_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

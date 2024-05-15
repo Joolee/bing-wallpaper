@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-15 | [The Blue City of Jodhpur, India (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.BlueCityIndia_EN-IN3177982227_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-14 | [Walkway leading into the Big Room, Carlsbad Caverns, New Mexico (© Doug Meek/Getty Images)](https://cn.bing.com/th?id=OHR.CarlsbadNP_EN-IN3004884534_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-13 | [Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)](https://cn.bing.com/th?id=OHR.NamibiaCanyon_EN-IN2812270328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
