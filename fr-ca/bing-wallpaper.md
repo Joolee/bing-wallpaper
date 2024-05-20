@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-21 | [Colline du Parlement à Ottawa, Ontario (© f11photo/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.OttawaParliamentHill_FR-CA4060254535_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-20 | [Village de Vernazza, Cinque Terre, Ligurie, Italie (© Roberto Moiola/Sysaworld/Getty Images)](https://cn.bing.com/th?id=OHR.VernazzaItaly_FR-CA3474515912_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-19 | [Squelette de baleine bleue appelé Hope, Natural History Museum, Londres, Angleterre (© Bailey-Cooper Photography/Alamy)](https://cn.bing.com/th?id=OHR.MuseumWhale_FR-CA3327752142_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
