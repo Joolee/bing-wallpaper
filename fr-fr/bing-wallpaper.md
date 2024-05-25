@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-25 | [Ksar d’Aït Benhaddou, Maroc (© Grant Faint/Getty Images)](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_FR-FR8548629295_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-24 | [Canyon d'Anisclo, Parc national d'Ordesa et Monte Perdido, Huesca, Espagne (© Marisa Estivill/Shutterstock)](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_FR-FR8382940670_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-22 | [Eucalyptus coccifera, parc national de Mount Field, Tasmanie, Australie (© Ignacio Palacios/Getty Images)](https://cn.bing.com/th?id=OHR.SnowGumTasmania_FR-FR8041530043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

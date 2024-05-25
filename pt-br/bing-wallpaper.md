@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-26 | [Aït Benhaddou, Marrocos (© Grant Faint/Getty Images)](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_PT-BR0472580311_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-25 | [Um trabalhador peneira grãos de café na fazenda de café Camocim em Domingos Martins, Espírito Santo (© Carl de Souza/Getty Images)](https://cn.bing.com/th?id=OHR.DiaNacionaldoCafe_PT-BR0388353116_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-23 | [Eucalipto goma-da-neve-da-Tasmânia (Eucalyptus pauciflora), Parque Nacional Mount Field, Tasmânia, Austrália (© Ignacio Palacios/Getty Images)](https://cn.bing.com/th?id=OHR.SnowGumTasmania_PT-BR0279882424_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

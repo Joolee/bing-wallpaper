@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-25 | [Ait-Ben-Haddou, Marocco (© Grant Faint/Getty Images)](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_IT-IT7804111538_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-24 | [Gola di Añisclo, Parco Nazionale di Ordesa e Monte Perdido, Huesca, Spagna (© Marisa Estivill/Shutterstock)](https://cn.bing.com/th?id=OHR.OrdesaNationalPark_IT-IT5681157201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-22 | [Gomma delle nevi della Tasmania (Eucalyptus pauciflora), Parco Nazionale di Mount Field, Tasmania, Australia (© Ignacio Palacios/Getty Images)](https://cn.bing.com/th?id=OHR.SnowGumTasmania_IT-IT5111843479_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
