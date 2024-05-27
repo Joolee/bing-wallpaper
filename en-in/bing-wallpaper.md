@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-27 | [Airavatesvara Temple at Darasuram, Tamil Nadu, built by Chola kings (© Narayan Kumar Photography/Shutterstock)](https://cn.bing.com/th?id=OHR.ShivaDarasuram_EN-IN5077554474_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-26 | [Balsamroot and lupines, Methow Valley, North Cascades, Washington (© Alan Majchrowicz/Getty Images)](https://cn.bing.com/th?id=OHR.MethowWildflowers_EN-IN4970374222_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-25 | [Aït Benhaddou, Morocco (© Grant Faint/Getty Images)](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_EN-IN4913242303_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
