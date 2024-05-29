@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-29 | [Adolescent European otters, Loch Spelve, Isle of Mull, Scotland (© Neil Henderson/Alamy)](https://cn.bing.com/th?id=OHR.MullOtter_EN-IN5193619685_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-28 | [Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)](https://cn.bing.com/th?id=OHR.MeteoraMonastery_EN-IN0876656339_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-27 | [Airavatesvara Temple at Darasuram, Tamil Nadu, built by Chola kings (© Narayan Kumar Photography/Shutterstock)](https://cn.bing.com/th?id=OHR.ShivaDarasuram_EN-IN5077554474_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
