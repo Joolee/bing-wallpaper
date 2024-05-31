@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-01 | [Gunnerside, Swaledale, Parc national des Yorkshire Dales, Angleterre (© Derek Croucher/Alamy)](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_FR-CA1216487634_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-31 | [Pins sylvestres, parc national des Everglades, Floride, États-Unis (© Jonathan Gewirtz/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.Everglades90th_FR-CA4007437491_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-30 | [Loutre d'Europe, Loch Spelve, île de Mull, Écosse (© Neil Henderson/Alamy)](https://cn.bing.com/th?id=OHR.MullOtter_FR-CA3702502425_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
