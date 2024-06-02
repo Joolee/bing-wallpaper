@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-02 | [Scenery around Hampi, Karnataka (© Holly Barber/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.IndiaHampi_EN-IN5466875133_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-01 | [San Francisco City Hall lit up in rainbow lights for Pride, California (© Josh Edelson/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.PrideMonthSF_EN-IN4842306720_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-31 | [Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy)](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_EN-IN7382796721_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
