@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-05 | [Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_EN-CA4730115773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-04 | [Bicycles in Copenhagen, Denmark (© Alphotographic/Getty Images)](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_EN-CA1742529177_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-03 | [Female Anna's hummingbird, Canada (© Devonyu/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.Annahummingbird_EN-CA0660927808_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
