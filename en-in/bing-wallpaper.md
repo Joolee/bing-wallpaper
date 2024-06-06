@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-06 | [Les Braves monument on Omaha Beach, Normandy, France (© Christopher Furlong/Getty Images)](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-IN6765304384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-05 | [Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-IN6496543904_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-04 | [Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_EN-IN6283551210_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
