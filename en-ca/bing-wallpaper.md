@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-11 | [Osaka at night, Japan (© wichianduangsri/Getty Images)](https://cn.bing.com/th?id=OHR.OsakaNight_EN-CA0467122795_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-10 | [Bardenas Reales Biosphere Reserve and Natural Park, Bardenas, Navarra, Spain (© Aliaume Chapelle/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-CA9390385116_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-09 | [Skyline of Downtown Montreal, Quebec, Canada (© benedek/E+/Getty Images)](https://cn.bing.com/th?id=OHR.CanadianGP_EN-CA8496728904_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
