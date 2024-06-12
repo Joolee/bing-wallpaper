@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-12 | [Vía Láctea sobre el Parque Nacional Big Bend, Texas, EE.UU. (© wisanuboonrawd/Adobe Stock)](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ES-ES2997966986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-11 | [Órice del cabo (Gemsbok) en la sabana, Botsuana (© Karine Aigner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ES-ES2633873347_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-10 | [Osaka de noche, Japón (© wichianduangsri/Getty Images)](https://cn.bing.com/th?id=OHR.OsakaNight_ES-ES1885531150_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
