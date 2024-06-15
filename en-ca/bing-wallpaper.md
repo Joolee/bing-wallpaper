@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-16 | [Surfer riding a wave in Nazaré, Portugal (© Rui Caria/Getty Images)](https://cn.bing.com/th?id=OHR.NazareWave_EN-CA5439968025_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-15 | [Peggy's Cove Lighthouse, Nova Scotia, Canada (© Pugalenthi/Getty Images)](https://cn.bing.com/th?id=OHR.PeggysCove_EN-CA5369786988_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-14 | [Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-CA2957046494_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
