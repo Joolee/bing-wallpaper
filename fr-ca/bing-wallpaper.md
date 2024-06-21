@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-22 | [Musée canadien de l’histoire (© Inspired By Maps/Shutterstock)](https://cn.bing.com/th?id=OHR.IndPeopleDay_FR-CA3161711334_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-21 | [Kokino, ancien observatoire mégalithique, Macédoine du Nord (© stoimilov/Shutterstock)](https://cn.bing.com/th?id=OHR.KokinoMacedonia_FR-CA9739761147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-20 | [Château d'eau à Cuxhaven, Allemagne (© Andreas Vogel/Alamy)](https://cn.bing.com/th?id=OHR.CuxhavenTower_FR-CA9531347179_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
