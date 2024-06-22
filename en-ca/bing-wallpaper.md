@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-23 | [Amazon rainforest, Brazil (© Claus Meyer/plainpicture)](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-CA8803781461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-22 | [Interior exhibits of the Canadian Museum of History (© Inspired By Maps/Shutterstock)](https://cn.bing.com/th?id=OHR.IndPeopleDay_EN-CA8734922275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-21 | [Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-CA8649662259_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-22 | [Foresta amazzonica, Brasile (© Claus Meyer/plainpicture)](https://cn.bing.com/th?id=OHR.BrazilRainforest_IT-IT5114382105_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-21 | [Madre giraffa reticolata con prole, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)](https://cn.bing.com/th?id=OHR.LewaGiraffe_IT-IT6350350663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-20 | [Vista di alberi nel bosco Reggio Calabria, Italia (© Roberto Martini/Getty Images)](https://cn.bing.com/th?id=OHR.SummerTree_IT-IT6031529080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
