@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-24 | [Vue aérienne d'un rond-point à Dacca, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.DhakaBangladesh_FR-CA3498982504_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-23 | [Forêt amazonienne, Brésil (© Claus Meyer/plainpicture)](https://cn.bing.com/th?id=OHR.BrazilRainforest_FR-CA3310343627_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-22 | [Musée canadien de l’histoire (© Inspired By Maps/Shutterstock)](https://cn.bing.com/th?id=OHR.IndPeopleDay_FR-CA3161711334_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

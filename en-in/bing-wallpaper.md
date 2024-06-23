@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-23 | [Aerial view of a roundabout in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.DhakaBangladesh_EN-IN8185160838_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-22 | [Amazon rainforest, Brazil (© Claus Meyer/plainpicture)](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-IN7651435144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-21 | [Rishikesh at night (© Andrey Khrobostov/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.RishikeshYoga_EN-IN7223104789_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
