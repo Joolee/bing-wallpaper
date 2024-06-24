@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-25 | [Lacs de cratères volcaniques, volvan Kelimutu, Flores, Indonésie (© Shane P. White/Minden Pictures)](https://cn.bing.com/th?id=OHR.FloresIsland_FR-CA3777595077_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-24 | [Vue aérienne d'un rond-point à Dacca, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.DhakaBangladesh_FR-CA3498982504_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-23 | [Forêt amazonienne, Brésil (© Claus Meyer/plainpicture)](https://cn.bing.com/th?id=OHR.BrazilRainforest_FR-CA3310343627_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
