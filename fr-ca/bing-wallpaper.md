@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-29 | [Drapeaux de la fierté au parc Christopher Street, monument national de Stonewall, New York, États-Unis (© Noam Galai/Getty Images)](https://cn.bing.com/th?id=OHR.ChristopherPark_FR-CA0383341384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-28 | [Cathédrale Santa Maria del Fiore au crépuscule, Florence, Italie (© Elena Pueyo/Getty Images)](https://cn.bing.com/th?id=OHR.FlorenceDuomo_FR-CA4457797022_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-27 | [Poisson cardinal de Banggai et anémone de mer, détroit de Lembeh, Sulawesi du Nord, Indonésie (© Constantinos Petrinos/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_FR-CA4303007654_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
