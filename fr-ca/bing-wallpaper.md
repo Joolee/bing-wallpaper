@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-01 | [Sculpture sur pierre dans un temple à Ubud, Bali, Indonésie (© R. Schönebaum/plainpicture)](https://cn.bing.com/th?id=OHR.UbudBali_FR-CA5056160520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-30 | [Cyclistes du Tour de France 2013, Corse (© Pascal Pochard-Casabianca/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.TourCorsica_FR-CA4580963850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-29 | [Drapeaux de la fierté au parc Christopher Street, monument national de Stonewall, New York, États-Unis (© Noam Galai/Getty Images)](https://cn.bing.com/th?id=OHR.ChristopherPark_FR-CA0383341384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
