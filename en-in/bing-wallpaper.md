@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-01 | [Fisgard Lighthouse, Esquimalt Harbour, Colwood, British Columbia, Canada (© davemantel/Getty Images)](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-IN6359811191_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-30 | [Stone carving at a temple in Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)](https://cn.bing.com/th?id=OHR.UbudBali_EN-IN5820803064_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-29 | [Cyclists in the 2013 Tour de France, Corsica, France (© Pascal Pochard-Casabianca/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.TourCorsica_EN-IN1515947386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
