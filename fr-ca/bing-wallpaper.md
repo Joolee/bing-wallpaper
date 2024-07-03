@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-04 | [Famille de suricates (© anetapics/Shutterstock)](https://cn.bing.com/th?id=OHR.MeerkatManor_FR-CA5868654494_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-03 | [Ancienne ville romaine de Italica à Santiponce, Séville,  Espagne (© Moses Palermo/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.ItalicaRuins_FR-CA5707908565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-02 | [Feu d'artifice de la fête du Canada derrière le Musée des beaux-arts du Canada, Ottawa (© gqxue/iStock Editorial/Gettty Images)](https://cn.bing.com/th?id=OHR.CanadaDayOttawa_FR-CA8632022668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
