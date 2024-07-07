@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-08 | [Rizières en terrasses de Mu Cang Chaine, Vietnam (© Kiatanan Sugsompian/Getty Images)](https://cn.bing.com/th?id=OHR.YenBaiTerraces_FR-CA7153800396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-07 | [Château de Conwy surplombant la rivière Conwy, Pays de Galles, Royaume-Uni (© David Chapman/Alamy)](https://cn.bing.com/th?id=OHR.ConwyRiver_FR-CA6980269240_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-06 | [Plage de Noah, forêt tropicale de Daintree, Queensland, Australie (© bjeayes/Getty Images)](https://cn.bing.com/th?id=OHR.NoahBeach_FR-CA6678694943_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
