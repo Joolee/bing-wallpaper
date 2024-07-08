@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-09 | [Myrtilles poussant à l'état sauvage (© Baac3nes/Getty Images)](https://cn.bing.com/th?id=OHR.NorwayBlueberries_FR-CA7308941830_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-08 | [Rizières en terrasses de Mu Cang Chaine, Vietnam (© Kiatanan Sugsompian/Getty Images)](https://cn.bing.com/th?id=OHR.YenBaiTerraces_FR-CA7153800396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-07 | [Château de Conwy surplombant la rivière Conwy, Pays de Galles, Royaume-Uni (© David Chapman/Alamy)](https://cn.bing.com/th?id=OHR.ConwyRiver_FR-CA6980269240_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
