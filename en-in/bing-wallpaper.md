@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-15 | [Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)](https://cn.bing.com/th?id=OHR.TateishiPark_EN-IN9733056165_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-14 | [Silky shark at Jardines de la Reina, Cuba (© Christian Vizl/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SilkyShark_EN-IN8852758594_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-13 | [Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-IN8308543174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

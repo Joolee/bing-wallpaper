@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-16 | [Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)](https://cn.bing.com/th?id=OHR.TateishiPark_EN-CA6542034123_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-15 | [Baia del Silenzio in Sestri Levante, Liguria, Italy (© StevanZZ/Getty Images)](https://cn.bing.com/th?id=OHR.SestriLevante_EN-CA8470730847_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-14 | [Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)](https://cn.bing.com/th?id=OHR.CappadociaRocks_EN-CA1807054291_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
