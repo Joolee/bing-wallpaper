@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-23 | [Campement dans un hamac au bord d'un lac en Floride, États-Unis (© Mac Stone/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.HammockCamping_FR-CA0644251921_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-22 | [Bateaux de pêche en bois, village de Kendwa, Zanzibar, Tanzanie (© Lubos Paukeje/Alamy)](https://cn.bing.com/th?id=OHR.ZanzibarBoats_FR-CA0477237134_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-21 | [La Lune (© Victor Blum/Getty Images)](https://cn.bing.com/th?id=OHR.MineralMoon_FR-CA0338721201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
