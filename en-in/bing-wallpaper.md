@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-26 | [Defence personnel pay tribute to Kargil martyrs (© Hindustan Times/Contributor/Getty images)](https://cn.bing.com/th?id=OHR.KargilMemorial_EN-IN8142573327_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-25 | [Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-IN0121082113_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-24 | [Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)](https://cn.bing.com/th?id=OHR.SheepCousins_EN-IN5841559829_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
