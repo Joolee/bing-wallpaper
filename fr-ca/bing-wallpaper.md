@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-29 | [Cabines de bain sur la plage, comté de Scanie, Suède (© Martin Wahlborg/Getty Images)](https://cn.bing.com/th?id=OHR.BeachHutsSweden_FR-CA5258282678_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-28 | [Vignobles de la vallée de la Moselle, Rhénanie-Palatinat, Allemagne (© Jorg Greuel/Getty Images)](https://cn.bing.com/th?id=OHR.RhinelandVineyards_FR-CA3427435860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-27 | [Pont Neuf sur la Seine, Paris, France (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.PontNeuf_FR-CA3057910454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
