@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-30 | [Tigres dans le parc national de Jim Corbett, Uttarakhand, Inde (© Sourabh Bharti/Getty Images)](https://cn.bing.com/th?id=OHR.CorbettTigers_FR-CA5951173663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-29 | [Cabines de bain sur la plage, comté de Scanie, Suède (© Martin Wahlborg/Getty Images)](https://cn.bing.com/th?id=OHR.BeachHutsSweden_FR-CA5258282678_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-28 | [Vignobles de la vallée de la Moselle, Rhénanie-Palatinat, Allemagne (© Jorg Greuel/Getty Images)](https://cn.bing.com/th?id=OHR.RhinelandVineyards_FR-CA3427435860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
