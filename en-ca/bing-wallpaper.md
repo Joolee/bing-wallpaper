@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-01 | [Hoodoos, Sunset Point, Bryce Canyon National Park, Utah (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-CA5127000421_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-31 | [San Gimignano, Siena, Tuscany, Italy (© MNStudio/Shutterstock)](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-CA4771125077_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-30 | [Tiger siblings in Jim Corbett National Park, Uttarakhand, India (© Sourabh Bharti/Getty Images)](https://cn.bing.com/th?id=OHR.CorbettTigers_EN-CA4355248170_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
