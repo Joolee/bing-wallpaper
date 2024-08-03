@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-04 | [Les Trois Ponts naturels, parc géologique national du karst de Wulong, Chine (© Pav-Pro Photography Ltd/Shutterstock)](https://cn.bing.com/th?id=OHR.WulongKarst_FR-CA7306306659_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-03 | [Une famille d'oies canadiennes nageant dans un lac du parc national de Banff, Alberta (© Chase Dekker Wild-Life Images/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.GeesefamilyBanff_FR-CA7121100228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-02 | [Marché flottant, lac Kaptai, Rangamati, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.KaptaiLake_FR-CA6950833575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
