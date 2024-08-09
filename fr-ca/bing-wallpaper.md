@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-10 | [Ruine inca de Sacsayhuamán près de Cusco, Pérou (© SL_Photography/Getty Images)](https://cn.bing.com/th?id=OHR.IncaRuinPeru_FR-CA4062483772_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-09 | [Chevêche brame, Bangkok, Thaïlande (© Tfilm/Getty Images)](https://cn.bing.com/th?id=OHR.SpottedOwlet_FR-CA8471413078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-08 | [Phares de Saint-Joseph, Michigan, États-Unis (© Kenneth Keifer/Getty Images)](https://cn.bing.com/th?id=OHR.MichiganLighthouse_FR-CA8319684656_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
