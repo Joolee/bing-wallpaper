@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-18 | [Phare d'Alfanzina, Algarve, Portugal (© Andreas Kunz/Getty Images)](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_FR-CA6758531395_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-17 | [Spectacle aérien international du Canada à l'Exposition nationale canadienne, Toronto, Ontario (© Tony Florio/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.CNE2024_FR-CA3077002584_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-16 | [Grotte de Hang Son Doong, Parc national de Phong Nha-Ke Bang, Vietnam (© Geng Xu/Getty Images)](https://cn.bing.com/th?id=OHR.HangCave_FR-CA6512887337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
