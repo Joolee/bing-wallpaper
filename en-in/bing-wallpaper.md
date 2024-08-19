@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-19 | [Festival of Raksha Bandhan (© Dinodia Photo/Getty Images)](https://cn.bing.com/th?id=OHR.FestivalRakhi_EN-IN9632575091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-18 | [Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.HuntingtonBeach_EN-IN9332234048_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-17 | [Alfanzina lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-IN9099733197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
