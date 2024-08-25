@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-25 | [Arched parapets of the Golconda Fort in Hyderabad, Telangana (© Manab Sen/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.GolcondaFort_EN-IN3908727493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-24 | [Katahdin Woods and Waters National Monument, Penobscot County, Maine (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.KatahdinWoods_EN-IN9245397268_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-23 | [Prasat Phanom Rung temple ruins, Buriram province, Thailand (© Banjongseal324/Getty Images)](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-IN2102190312_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
