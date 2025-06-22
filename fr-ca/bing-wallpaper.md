@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-23 | [Forêt amazonienne, Équateur (© Mark Fox/Getty Images)](https://cn.bing.com/th?id=OHR.AmazonEcuador_FR-CA0323191922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-22 | [Une girafe Masaï et son girafon, parc national du Serengeti, Tanzanie (© Alberto Cassani/Getty Images)](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_FR-CA0126401878_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-21 | [Cascade de Seljalandsfoss au coucher du soleil, Islande (© Tom Mackie/AWL/plainpicture)](https://cn.bing.com/th?id=OHR.IcelandSolstice_FR-CA9981764329_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
