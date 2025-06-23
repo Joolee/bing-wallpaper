@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-23 | [Elbe river in Dresden, Germany (© Sean Pavone/Getty Images)](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-IN0311228485_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-22 | [Amazon rainforest, Ecuador (© Mark Fox/Getty Images)](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-IN0140083237_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-21 | [Lakshman Jhula, Rishikesh, Uttarakhand (© tscreationz/Shutterstock)](https://cn.bing.com/th?id=OHR.LakshmanJhula_EN-IN9788352654_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
