@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-27 | [The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-CA0845252877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-26 | [St. Michael's Church Tower on Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)](https://cn.bing.com/th?id=OHR.GlastonburyScenic_EN-CA0680110698_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-25 | [Delicate Arch, Arches National Park, Utah (© mmac72/Getty Images)](https://cn.bing.com/th?id=OHR.DelicateArch_EN-CA0482409056_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
