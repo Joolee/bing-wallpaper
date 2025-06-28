@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-29 | [Drapeaux arc-en-ciel à la Marche des Fiertés de New York, États-Unis (© Alan Schein/Getty Images)](https://cn.bing.com/th?id=OHR.PrideParade_FR-CA2137660039_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-28 | [Grenouille Cruziohyla calcarifer (© Jan Stria/Shutterstock)](https://cn.bing.com/th?id=OHR.SplendidFrog_FR-CA1970475341_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-27 | [Voie lactée, Horse Head Rock, Nouvelle-Galles du Sud, Australie (© Philip Thurston/Getty Images)](https://cn.bing.com/th?id=OHR.HorseheadRock_FR-CA1420999474_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

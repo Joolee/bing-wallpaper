@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-29 | [Rainbow flags at New York Pride, United States (© Alan Schein/Getty Images)](https://cn.bing.com/th?id=OHR.PrideParade_EN-CA1755780382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-28 | [Splendid leaf frog (© Jan Stria/Shutterstock)](https://cn.bing.com/th?id=OHR.SplendidFrog_EN-CA1521456248_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-27 | [The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)](https://cn.bing.com/th?id=OHR.HorseheadRock_EN-CA0845252877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
