@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-01 | [Cratère de Wolfe Creek, Australie (© Abstract Aerial Art/Getty Images)](https://cn.bing.com/th?id=OHR.WolfeCrater_FR-CA2528763112_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-30 | [Lagon bleu de Pulau Ay, îles Banda, Indonésie (© fabio lamanna/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.BandaIsland_FR-CA2396920434_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-29 | [Drapeaux arc-en-ciel à la Marche des Fiertés de New York, États-Unis (© Alan Schein/Getty Images)](https://cn.bing.com/th?id=OHR.PrideParade_FR-CA2137660039_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
