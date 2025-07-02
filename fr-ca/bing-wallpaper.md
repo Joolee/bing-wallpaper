@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-03 | [Poisson-clown à joues épineuses entouré d'une anémone bulle, baie de Milne, Papouasie-Nouvelle-Guinée (© Fred Bavendam/Nature Picture Library)](https://cn.bing.com/th?id=OHR.MaroonClownfish_FR-CA2812323581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-02 | [Village de pêcheurs de Tilting, île Fogo, Terre-Neuve-et-Labrador (© FedevPhoto/Getty Images)](https://cn.bing.com/th?id=OHR.CanadaDayFogo_FR-CA2667596304_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-01 | [Cratère de Wolfe Creek, Australie (© Abstract Aerial Art/Getty Images)](https://cn.bing.com/th?id=OHR.WolfeCrater_FR-CA2528763112_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
