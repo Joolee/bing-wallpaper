@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-03 | [Rainbow River in Rainbow Springs State Park, Florida, United States (© Michel Roggo/Minden Pictures)](https://cn.bing.com/th?id=OHR.RainbowRiver_EN-IN6286296662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-02 | [Spine-cheeked anemonefish surrounded by bubble-tip anemone, Milne Bay, Papua New Guinea (© Fred Bavendam/Nature Picture Library)](https://cn.bing.com/th?id=OHR.MaroonClownfish_EN-IN6113544568_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-01 | [Houseboats on Vembanad lake, Kerala (© artherng/Getty Images)](https://cn.bing.com/th?id=OHR.KeralaHouseboats_EN-IN3537088049_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
