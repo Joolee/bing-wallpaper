@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-06 | [Descending the Col du Tourmalet in the French Pyrenees during the 2021 Tour de France (© THOMAS SAMSON/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.TourCyclists_EN-CA3150414596_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-05 | [Skipper butterfly on an Echinacea flower, Rockefeller State Park, New York (© Marianne A. Campolongo/Alamy)](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_EN-CA7402334180_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-04 | [Rainbow River in Rainbow Springs State Park, Florida, United States (© Michel Roggo/Minden Pictures)](https://cn.bing.com/th?id=OHR.RainbowRiver_EN-CA2699490403_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
