@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-07 | [Dunes de Mesquite Flat dans le parc national de la Vallée de la Mort, États-Unis (© Bryan Jolley/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.MesquiteFlats_FR-CA4883989407_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-06 | [Descente du col du Tourmalet lors du Tour de France 2021 (© THOMAS SAMSON/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.TourCyclists_FR-CA4748995324_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-05 | [Orosei, Sardaigne, Italie (© EyeEm Mobile GmbH/Getty Images)](https://cn.bing.com/th?id=OHR.OroseiSardegna_FR-CA4632087069_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
