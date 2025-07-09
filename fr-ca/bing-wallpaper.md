@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-10 | [Gare de Constitución, Buenos Aires, Argentine (© Grafissimo/Getty Images)](https://cn.bing.com/th?id=OHR.ConstitucionStation_FR-CA5656612797_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-09 | [Seceda, Dolomites, Tyrol du Sud, Italie (© Kalyakan/Adobe Stock)](https://cn.bing.com/th?id=OHR.SecedaPeak_FR-CA5229717500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-08 | [Fous de Bassan à la recherche de poissons, îles Shetland, Écosse (© Richard Shucksmith/Minden Pictures)](https://cn.bing.com/th?id=OHR.ShetlandGannets_FR-CA5027328603_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
