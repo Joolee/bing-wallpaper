@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-11 | [Tokyo at sunrise, Japan (© pongnathee kluaythong/Getty Images)](https://cn.bing.com/th?id=OHR.TokyoSunrise_EN-IN0638589694_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-10 | [Buddha Statue, Hussain Sagar, Hyderabad, Telangana (© Amith Nag Photography/Getty Images)](https://cn.bing.com/th?id=OHR.LordBuddha_EN-IN7435610826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-09 | [Constitución railway station, Buenos Aires, Argentina (© Grafissimo/Getty Images)](https://cn.bing.com/th?id=OHR.ConstitucionStation_EN-IN1557564124_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

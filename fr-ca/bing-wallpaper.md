@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-12 | [Tokyo au lever du jour, Japon (© pongnathee kluaythong/Getty Images)](https://cn.bing.com/th?id=OHR.TokyoSunrise_FR-CA0169507494_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-11 | [Eaux turquoise des Bahamas (© BlueOrange Studio/Adobe Stock)](https://cn.bing.com/th?id=OHR.BahamaBlues_FR-CA5790040878_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-10 | [Gare de Constitución, Buenos Aires, Argentine (© Grafissimo/Getty Images)](https://cn.bing.com/th?id=OHR.ConstitucionStation_FR-CA5656612797_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
