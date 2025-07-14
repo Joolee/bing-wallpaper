@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-15 | [Jeune requin bleu nageant au large des côtes de Galice, Espagne (© Damocean/Getty Images)](https://cn.bing.com/th?id=OHR.YoungShark_FR-CA9574855149_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-14 | [Colonnes de basalte dans la crique de Kálfshamarsvík, Skagi, Islande (© Arterra Picture Library/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.BasaltColumns_FR-CA9920967647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-13 | [Gazelle de Thomson, mère et faon, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.ThomsonGazelle_FR-CA0045421525_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
