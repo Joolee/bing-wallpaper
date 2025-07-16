@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-17 | [Temple d'Isis, Assouan, Égypte (© Ratnakorn Piyasirisorost/Getty Images)](https://cn.bing.com/th?id=OHR.TemplePhilae_FR-CA9223099268_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-16 | [Étoiles filantes des Perséides et pin Bristlecone, parc national du Grand Bassin, États-Unis (© Wirestock Creators/Shutterstock)](https://cn.bing.com/th?id=OHR.PerseidsPine_FR-CA9431536579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-15 | [Jeune requin bleu nageant au large des côtes de Galice, Espagne (© Damocean/Getty Images)](https://cn.bing.com/th?id=OHR.YoungShark_FR-CA9574855149_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
