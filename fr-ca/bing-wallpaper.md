@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-18 | [Champs de lavande sur le plateau de Valensole, Provence, France (© zpagistock/Getty Images)](https://cn.bing.com/th?id=OHR.FranceLavender_FR-CA9093212384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-17 | [Temple d'Isis, Assouan, Égypte (© Ratnakorn Piyasirisorost/Getty Images)](https://cn.bing.com/th?id=OHR.TemplePhilae_FR-CA9223099268_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-16 | [Étoiles filantes des Perséides et pin Bristlecone, parc national du Grand Bassin, États-Unis (© Wirestock Creators/Shutterstock)](https://cn.bing.com/th?id=OHR.PerseidsPine_FR-CA9431536579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
