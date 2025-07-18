@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-18 | [Turquoise waters of the Bahamas (© BlueOrange Studio/Adobe Stock)](https://cn.bing.com/th?id=OHR.BahamaBlues_EN-IN1616548748_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-17 | [Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)](https://cn.bing.com/th?id=OHR.FranceLavender_EN-IN6275328084_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-16 | [Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-IN4820282952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

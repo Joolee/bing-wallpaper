@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-19 | [Orosei, Sardinia, Italy (© EyeEm Mobile GmbH/Getty Images)](https://cn.bing.com/th?id=OHR.OroseiSardegna_EN-CA6517988362_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-18 | [Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)](https://cn.bing.com/th?id=OHR.FranceLavender_EN-CA4651592826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-17 | [Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)](https://cn.bing.com/th?id=OHR.TemplePhilae_EN-CA4518943728_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
