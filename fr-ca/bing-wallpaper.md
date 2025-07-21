@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-22 | [Corail corne de cerf dans une mer peu profonde (© blue-sea.cz/Shutterstock)](https://cn.bing.com/th?id=OHR.AcroporaReef_FR-CA7721467193_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-21 | [Photo de la surface de la Lune à travers un télescope (© Sergey Kuznetsov/Getty Images)](https://cn.bing.com/th?id=OHR.BigMoon_FR-CA7813473867_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-20 | [Phare de Jackson's Point sur le lac Simcoe, Ontario (© AWSeebaran/E+/Getty Images)](https://cn.bing.com/th?id=OHR.SimcoeLighthouse_FR-CA8079606831_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
