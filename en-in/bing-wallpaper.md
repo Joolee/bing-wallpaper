@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-31 | [Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii, United States (© Russ Bishop/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.NaPaliKauai_EN-IN8581936308_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-30 | [Inside Agra Fort, Agra, Uttar Pradesh (© Luke Mackenzie/Getty Images)](https://cn.bing.com/th?id=OHR.AgraFortInside_EN-IN8393128269_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-29 | [Female Bengal tiger, Kanha National Park, India (© Axel Gomille/Nature Picture Library)](https://cn.bing.com/th?id=OHR.TigerDay_EN-IN7892479996_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
