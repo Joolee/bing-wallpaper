@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-04 | [Des tournesols en fleurs dans un champ en été (© Arsgera/Shutterstock)](https://cn.bing.com/th?id=OHR.HappySunflower_FR-CA2344736819_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-03 | [Pétroglyphes près de Fruita, dans le parc national de Capitol Reef, Utah, États-Unis (© Nicolas VINCENT/Adobe Stock)](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_FR-CA1725199381_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-02 | [Royal Mile, Édimbourg, Écosse (© MEDITERRANEAN/Getty Images)](https://cn.bing.com/th?id=OHR.EdinburghFringe_FR-CA9015362878_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
