@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-07 | [Un jeune Lemur catta qui joue avec sa queue, Madagascar (© Andy Rouse/Nature Picture Library)](https://cn.bing.com/th?id=OHR.BabyLemur_FR-CA2192147292_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-06 | [Bassins de marée à La Jolla, Californie, États-Unis (© Andrew Shoemaker/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_FR-CA1946235706_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-05 | [Chouettes lapones dans leur nid, Finlande (© imageBROKER.com/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.LaplandOwl_FR-CA0987806680_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
