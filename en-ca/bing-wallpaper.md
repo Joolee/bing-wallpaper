@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-08 | [Monoliths of the Mingan Archipelago, Quebec (© David Boutin Photography/Getty Images)](https://cn.bing.com/th?id=OHR.MinganWonders_EN-CA5648384478_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-07 | [Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)](https://cn.bing.com/th?id=OHR.BabyLemur_EN-CA5435344938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-06 | [Tide pools in La Jolla, California, United States (© Andrew Shoemaker/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_EN-CA5246785571_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
