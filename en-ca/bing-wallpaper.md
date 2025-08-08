@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-09 | [The Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)](https://cn.bing.com/th?id=OHR.IguazuArgentina_EN-CA6325716165_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-08 | [Monoliths of the Mingan Archipelago, Quebec (© David Boutin Photography/Getty Images)](https://cn.bing.com/th?id=OHR.MinganWonders_EN-CA5648384478_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-07 | [Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)](https://cn.bing.com/th?id=OHR.BabyLemur_EN-CA5435344938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
