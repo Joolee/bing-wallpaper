@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-10 | [Sculptures rupestres maories de Mine Bay, Lac Taupō, Nouvelle-Zélande (© Joppi/Getty Images)](https://cn.bing.com/th?id=OHR.MaoriRock_FR-CA5104574496_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-09 | [Chutes des Trois Mousquetaires, Iguazú, Argentine (© Mark Meredith/Getty Images)](https://cn.bing.com/th?id=OHR.IguazuArgentina_FR-CA4914550497_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-08 | [Monolithes de l'archipel de Mingan, Québec (© David Boutin Photography/Getty Images)](https://cn.bing.com/th?id=OHR.MinganWonders_FR-CA3034674973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

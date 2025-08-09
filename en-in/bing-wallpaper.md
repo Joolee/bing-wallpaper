@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-09 | [A rakhi (© Seemanta Dutta/Getty Images)](https://cn.bing.com/th?id=OHR.RakhiRice_EN-IN3504050150_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-08 | [The Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)](https://cn.bing.com/th?id=OHR.IguazuArgentina_EN-IN3106576952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-07 | [Malshej Ghat, Maharashtra (© anand purohit/Getty Images)](https://cn.bing.com/th?id=OHR.MalshejGhat_EN-IN3001069579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
