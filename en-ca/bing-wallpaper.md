@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-13 | [African elephant herd, Amboseli National Park, Kenya (© Chase Dekker/Minden Pictures)](https://cn.bing.com/th?id=OHR.KenyaElephants_EN-CA6960133643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-12 | [Village of Santa Maddalena, Dolomites, Italy (© Sakrapee Nopparat/Getty Images)](https://cn.bing.com/th?id=OHR.SantaMaddalena_EN-CA6755277822_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-11 | [Lioness in Maasai Mara National Reserve, Kenya (© Tandem Stock/Adobe Stock)](https://cn.bing.com/th?id=OHR.LionessKenya_EN-CA6611934793_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
