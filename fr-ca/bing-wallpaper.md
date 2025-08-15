@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-16 | [L’attraction Orbitor à l’Exposition nationale canadienne, Toronto (© James Hackland/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.CNExhibit_FR-CA1821188983_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-15 | [Station téléphérique du mont Piz Nair, Grisons, Suisse (© Roberto Moiola/Alamy)](https://cn.bing.com/th?id=OHR.PizNairPeak_FR-CA6049160624_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-14 | [Descente en rappel de Corona Arch, Utah, États-Unis (© Grant Ordelheide/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.CoronaArch_FR-CA5923808590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
