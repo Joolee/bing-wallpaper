@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-16 | [Colourful beehives, Italy (© Roberto Caucino/Shutterstock)](https://cn.bing.com/th?id=OHR.ColorfulBeehives_EN-IN5686651222_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-15 | [Red Fort, Delhi (© MadhoG/Getty Images)](https://cn.bing.com/th?id=OHR.RefFort2025_EN-IN3018612282_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-14 | [Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-IN4426119374_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

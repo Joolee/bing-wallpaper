@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-17 | [Colourful beehives, Italy (© Roberto Caucino/Shutterstock)](https://cn.bing.com/th?id=OHR.ColorfulBeehives_EN-CA7943336590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-16 | [The Orbitor ride at the Canadian National Exhibition, Toronto (© James Hackland/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.CNExhibit_EN-CA7387294969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-15 | [Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-CA7466482253_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
