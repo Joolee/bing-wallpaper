@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-18 | [Phare de Lyngvig, Hvide Sande, Danemark (© Caroline Brundle Bugge/Getty Images)](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_FR-CA6450462994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-17 | [Ruches colorées, Italie (© Roberto Caucino/Shutterstock)](https://cn.bing.com/th?id=OHR.ColorfulBeehives_FR-CA6306812917_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-16 | [L’attraction Orbitor à l’Exposition nationale canadienne, Toronto (© James Hackland/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.CNExhibit_FR-CA1821188983_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
