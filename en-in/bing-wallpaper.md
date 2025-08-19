@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-19 | [Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.SpottedEagleRay_EN-IN9432285920_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-19 | [Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.SpottedEagleRay_EN-IN2313408086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-18 | [Avalanche Lake trail at Adirondack High Peaks, New York, United States (© Posnov/Getty Images)](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-IN2042962209_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
