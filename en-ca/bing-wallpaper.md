@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-20 | [Aerial view of Vancouver Island, British Columbia (© edb3_16/Getty Images)](https://cn.bing.com/th?id=OHR.VanIsland_EN-CA8465545166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-19 | [Avalanche Lake Trail at Adirondack High Peaks, New York, United States (© Posnov/Getty Images)](https://cn.bing.com/th?id=OHR.AvalancheLake_EN-CA8229303307_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-18 | [Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_EN-CA8074234624_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

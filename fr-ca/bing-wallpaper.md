@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-20 | [Vue aérienne de l’île de Vancouver, Colombie-Britannique (© edb3_16/Getty Images)](https://cn.bing.com/th?id=OHR.VanIsland_FR-CA6726898164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-19 | [Sentier du lac Avalanche, Adirondacks High Peaks, États-Unis (© Posnov/Getty Images)](https://cn.bing.com/th?id=OHR.AvalancheLake_FR-CA6587047706_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-18 | [Phare de Lyngvig, Hvide Sande, Danemark (© Caroline Brundle Bugge/Getty Images)](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_FR-CA6450462994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
