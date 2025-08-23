@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-24 | [Cathédrale Sainte-Barbe, Kutná Hora, Tchéquie (© Castka/Getty Images)](https://cn.bing.com/th?id=OHR.SaintBarbaras_FR-CA8370632237_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-23 | [Collines ondulantes de la Palouse, Washington, États-Unis (© svetlana57/Getty Images)](https://cn.bing.com/th?id=OHR.PalouseWA_FR-CA7470157507_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-22 | [Traquet motteux au milieu de la bruyère, parc national du Peak District, Angleterre (© Ben Hall/Nature Picture Library)](https://cn.bing.com/th?id=OHR.WheatearBird_FR-CA7419271130_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
