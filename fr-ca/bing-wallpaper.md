@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-25 | [Daim européen, Angleterre (© Enrique Aguirre Aves/Getty Images)](https://cn.bing.com/th?id=OHR.CervusDama_FR-CA0373208041_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-24 | [Cathédrale Sainte-Barbe, Kutná Hora, Tchéquie (© Castka/Getty Images)](https://cn.bing.com/th?id=OHR.SaintBarbaras_FR-CA8370632237_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-23 | [Collines ondulantes de la Palouse, Washington, États-Unis (© svetlana57/Getty Images)](https://cn.bing.com/th?id=OHR.PalouseWA_FR-CA7470157507_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
