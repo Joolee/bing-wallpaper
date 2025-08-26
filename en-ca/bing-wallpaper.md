@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-27 | [Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-CA2142617397_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-26 | [Colony of northern gannets, Quebec (© Vladone/Getty Images)](https://cn.bing.com/th?id=OHR.Gannets_EN-CA1938110347_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-25 | [European fallow deer, England (© Enrique Aguirre Aves/Getty Images)](https://cn.bing.com/th?id=OHR.CervusDama_EN-CA1743001514_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

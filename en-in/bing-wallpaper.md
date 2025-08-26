@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-26 | [Sørvágsvatn lake, island of Vágar, Faroe Islands (© Anton Petrus/Getty Images)](https://cn.bing.com/th?id=OHR.FaroeLake_EN-IN3134235766_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-25 | [Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming, United States (© Rebecca L. Latson/Getty Images)](https://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-IN1865488770_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-24 | [European fallow deer, England (© Enrique Aguirre Aves/Getty Images)](https://cn.bing.com/th?id=OHR.CervusDama_EN-IN1330796053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
