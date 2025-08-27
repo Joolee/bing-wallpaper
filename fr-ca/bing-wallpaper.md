@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-28 | [Lac Sørvágsvatn, île de Vágar, Îles Féroé (© Anton Petrus/Getty Images)](https://cn.bing.com/th?id=OHR.FaroeLake_FR-CA0076733437_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-27 | [Les maisons trulli d’Alberobello, Pouilles, Italie (© Feng Wei Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TrulliHouses_FR-CA1043617057_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-26 | [Colonie de fous de Bassan, Québec (© Vladone/Getty Images)](https://cn.bing.com/th?id=OHR.Gannets_FR-CA0668588396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
