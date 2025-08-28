@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-28 | [Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-IN3331960000_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-27 | [Clay-idol of Ganesha at a temple near Bengaluru (© Amith Nag Photography/Getty Images)](https://cn.bing.com/th?id=OHR.ClayGanesha_EN-IN3970807588_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-26 | [Sørvágsvatn lake, island of Vágar, Faroe Islands (© Anton Petrus/Getty Images)](https://cn.bing.com/th?id=OHR.FaroeLake_EN-IN3134235766_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-29 | [Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-CA2448116937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-28 | [Sørvágsvatn lake, island of Vágar, Faroe Islands (© Anton Petrus/Getty Images)](https://cn.bing.com/th?id=OHR.FaroeLake_EN-CA2287447037_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-27 | [Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-CA2142617397_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
