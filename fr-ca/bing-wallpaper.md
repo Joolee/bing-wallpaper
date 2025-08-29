@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-30 | [Vue aérienne de la Plaza Mayor, Madrid, Espagne (© AirPano LLC/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.PlazaMayor_FR-CA1242248098_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-29 | [Grande Aigrette, Hongrie (© Markus Varesvuo/Nature Picture Library)](https://cn.bing.com/th?id=OHR.WhiteEgret_FR-CA1756697476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-28 | [Lac Sørvágsvatn, île de Vágar, Îles Féroé (© Anton Petrus/Getty Images)](https://cn.bing.com/th?id=OHR.FaroeLake_FR-CA0076733437_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
