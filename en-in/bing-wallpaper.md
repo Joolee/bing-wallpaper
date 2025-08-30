@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-30 | [Whale shark off the coast of Alifu Dhaalu Atoll, Maldives (© Bachir Moukarzel/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_EN-IN3643535243_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-29 | [Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.PlazaMayor_EN-IN3487561181_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-28 | [Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)](https://cn.bing.com/th?id=OHR.WhiteEgret_EN-IN3331960000_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
