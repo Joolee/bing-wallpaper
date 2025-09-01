@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-02 | [Zone sauvage des Boundary Waters Canoe Area, Minnesota, États-Unis (© s.tomas/Shutterstock)](https://cn.bing.com/th?id=OHR.MinnesotaWaters_FR-CA2747659631_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-01 | [Monument national de Scotts Bluff, Gering, Nebraska, États-Unis (© Hawk Buckman/Getty Images)](https://cn.bing.com/th?id=OHR.ScottsBluff_FR-CA2319922928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-31 | [Requin-baleine au large de l’atoll Alifu Dhaalu, Maldives (© Bachir Moukarzel/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_FR-CA2035727056_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
