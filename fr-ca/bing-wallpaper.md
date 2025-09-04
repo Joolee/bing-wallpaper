@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-05 | [Tour CN illuminée de nuit à Toronto, Ontario (© R.M. Nunes/Shutterstock)](https://cn.bing.com/th?id=OHR.TiFF25_FR-CA5296351553_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-04 | [Bagarre amicale de grizzlis, parc national Katmai, Alaska, États-Unis (© Cavan Images/Adobe Stock)](https://cn.bing.com/th?id=OHR.WrestlingBears_FR-CA4913260045_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-03 | [Acacias à girafe, Deadvlei, parc Namib-Naukluft, Namibie (© Inge Johnsson/Alamy)](https://cn.bing.com/th?id=OHR.DeadvleiTrees_FR-CA3437510349_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

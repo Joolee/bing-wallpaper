@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-04 | [Grizzly bears wrestling, Katmai National Park and Preserve, Alaska, United States (© Cavan Images/Adobe Stock)](https://cn.bing.com/th?id=OHR.WrestlingBears_EN-IN9132458412_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-03 | [Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TrulliHouses_EN-IN4494179096_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-02 | [Camel thorn trees, Deadvlei, Namib-Naukluft Park, Namibia (© Inge Johnsson/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.DeadvleiTrees_EN-IN4217239314_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
