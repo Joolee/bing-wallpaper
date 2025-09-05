@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-06 | [Pacific Park, Santa Monica State Beach, California, United States (© EXTREME-PHOTOGRAPHER/Getty Images)](https://cn.bing.com/th?id=OHR.SunsetPier_EN-CA4630719241_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-05 | [CN Tower illuminated at night in Toronto, Ontario (© R.M. Nunes/Shutterstock)](https://cn.bing.com/th?id=OHR.TiFF25_EN-CA4935162806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-04 | [Grizzly bears wrestling, Katmai National Park and Preserve, Alaska, United States (© Cavan Images/Adobe Stock)](https://cn.bing.com/th?id=OHR.WrestlingBears_EN-CA6711958224_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
