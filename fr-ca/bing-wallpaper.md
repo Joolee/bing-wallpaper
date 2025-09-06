@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-07 | [Colibri roux, parc du Golden Gate, San Francisco, Californie, États-Unis (© jeremyborkat/Getty Images)](https://cn.bing.com/th?id=OHR.RufousHummer_FR-CA9514503167_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-06 | [Pacific Park, plage d'État de Santa Monica, Californie, États-Unis (© EXTREME-PHOTOGRAPHER/Getty Images)](https://cn.bing.com/th?id=OHR.SunsetPier_FR-CA7066243474_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-05 | [Tour CN illuminée de nuit à Toronto, Ontario (© R.M. Nunes/Shutterstock)](https://cn.bing.com/th?id=OHR.TiFF25_FR-CA5296351553_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
