@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-11 | [Bottes de foin, North Yorkshire, Angleterre (© Nick Brundle Photography/Getty Images)](https://cn.bing.com/th?id=OHR.YorkshireHay_FR-CA9200328346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-10 | [Femelle écureuil roux avec de la mousse, Suisse (© Jean-Luc and Francoise Ziegler/Minden Pictures)](https://cn.bing.com/th?id=OHR.SwissSquirrel_FR-CA9311123273_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-09 | [Bibliothèque library@orchard, Singapour (© Darwin Fan/Getty Images)](https://cn.bing.com/th?id=OHR.OrchardLibrary_FR-CA9778304920_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
