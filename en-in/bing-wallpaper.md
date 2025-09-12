@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-12 | [Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (�� Franco Banfi/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-IN0873508505_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-12 | [Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SpinnerDolphins_EN-IN0873508505_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-11 | [Butterfly Beach in Canacona, South Goa (© Puneet Vikram Singh, Nature and Concept photographer/Getty Images)](https://cn.bing.com/th?id=OHR.ButterflyBeach_EN-IN0695823552_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
