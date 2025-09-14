@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-15 | [Cascade dans le parc national Olympic, État de Washington, États-Unis (© Chris Moore/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.HohWaterfall_FR-CA7726567237_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-14 | [Chimney Rock, Point Reyes National Seashore, Californie, États-Unis (© Enrique Aguirre Aves/Getty Images)](https://cn.bing.com/th?id=OHR.PointReyesSeashore_FR-CA7871532058_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-13 | [Groupe de dauphins à long bec dans la mer Rouge, Marsa Alam, Égypte (© Franco Banfi/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SpinnerDolphins_FR-CA8668368271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
