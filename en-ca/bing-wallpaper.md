@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-16 | [Coastline at Cape Breton Highlands National Park, Nova Scotia (© Tiago_Fernandez/Getty Images)](https://cn.bing.com/th?id=OHR.BrentonHighlandsNP_EN-CA6938321042_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-16 | [Coastline at Cape Breton Highlands National Park, Nova Scotia (© Tiago_Fernandez/Getty Images)](https://cn.bing.com/th?id=OHR.BrentonHighlandsNP_EN-CA7280821074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-15 | [A waterfall in Olympic National Park, Washington, United States (© Chris Moore/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.HohWaterfall_EN-CA7082475802_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
