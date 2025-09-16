@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-17 | [Vue nocturne des États américains bordant le golfe du Mexique, depuis 360 kilomètres au-dessus de la Terre (© Stocktrek Images/Getty Images)](https://cn.bing.com/th?id=OHR.OzoneEarth_FR-CA7415892367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-16 | [Littoral du parc national des Hautes-Terres-du-Cap-Breton, Nouvelle-Écosse (© Tiago_Fernandez/Getty Images)](https://cn.bing.com/th?id=OHR.BrentonHighlandsNP_FR-CA0634942410_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-15 | [Cascade dans le parc national Olympic, État de Washington, États-Unis (© Chris Moore/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.HohWaterfall_FR-CA7726567237_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
