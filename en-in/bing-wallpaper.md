@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-17 | [A young bull moose in Denali National Park, Alaska, United States (© Grant Ordelheide/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.YoungMoose_EN-IN1905120338_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-16 | [A nighttime view of the Gulf Coast states from 350 kilometres above Earth (© Stocktrek Images/Getty Images)](https://cn.bing.com/th?id=OHR.OzoneEarth_EN-IN1801873889_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-15 | [Black-winged stilts, France (© Antonio Sementa/500px/Getty Images)](https://cn.bing.com/th?id=OHR.Echasse_EN-IN1542383073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
