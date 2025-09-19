@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-20 | [Région des Mille-Îles, Saint-Laurent, frontière canado-américaine (© benedek/Getty Images)](https://cn.bing.com/th?id=OHR.ThousandIslands_FR-CA2696855753_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-19 | [Escalier sinueux de Dunquin Pier, comté de Kerry, Irlande (© Hugh O'Connor/Getty Images)](https://cn.bing.com/th?id=OHR.DunquinIreland_FR-CA7189832107_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-18 | [Jeune élan mâle, parc national de Denali, Alaska, États-Unis (© Grant Ordelheide/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.YoungMoose_FR-CA2358122126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
