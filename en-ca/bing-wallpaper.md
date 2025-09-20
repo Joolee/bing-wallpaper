@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-21 | [Swing carousel at Oktoberfest, Munich, Bavaria, Germany (© LOOK-foto/Alamy)](https://cn.bing.com/th?id=OHR.OktoberfestSwing_EN-CA4280103942_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-20 | [Thousand Islands region, St. Lawrence River, USA-Canada border (© benedek/Getty Images)](https://cn.bing.com/th?id=OHR.ThousandIslands_EN-CA4060601894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-19 | [Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O'Connor/Getty Images)](https://cn.bing.com/th?id=OHR.DunquinIreland_EN-CA7995972934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
