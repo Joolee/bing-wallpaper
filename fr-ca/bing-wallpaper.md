@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-22 | [Loutres de mer, Baie du Prince-William, Alaska, États-Unis (© Gerald Corsi/Getty Images)](https://cn.bing.com/th?id=OHR.IceOtters_FR-CA3170319106_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-21 | [Carrousel à balançoires à l’Oktoberfest de Munich, Bavière, Allemagne (© LOOK-foto/Alamy)](https://cn.bing.com/th?id=OHR.OktoberfestSwing_FR-CA3046435338_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-20 | [Région des Mille-Îles, Saint-Laurent, frontière canado-américaine (© benedek/Getty Images)](https://cn.bing.com/th?id=OHR.ThousandIslands_FR-CA2696855753_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
