@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-23 | [Peupliers faux-trembles en automne, forêt nationale de Fishlake, Utah, États-Unis (© Danita Delimont/Getty Images)](https://cn.bing.com/th?id=OHR.AspenEquinox_FR-CA3336828121_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-22 | [Loutres de mer, Baie du Prince-William, Alaska, États-Unis (© Gerald Corsi/Getty Images)](https://cn.bing.com/th?id=OHR.IceOtters_FR-CA3170319106_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-21 | [Carrousel à balançoires à l’Oktoberfest de Munich, Bavière, Allemagne (© LOOK-foto/Alamy)](https://cn.bing.com/th?id=OHR.OktoberfestSwing_FR-CA3046435338_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
