@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-24 | [Devils Tower National Monument, Wyoming, United States (© Laura Hedien/Getty Images)](https://cn.bing.com/th?id=OHR.BearLodge_EN-IN2528556725_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-23 | [Keel-billed toucan in Costa Rica (© Juan Carlos Vindas/Getty Images)](https://cn.bing.com/th?id=OHR.ToucanForest_EN-IN2300582458_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-22 | [Aspen trees during autumn Fishlake National Forest, Utah, United States (© Danita Delimont/Getty Images)](https://cn.bing.com/th?id=OHR.AspenEquinox_EN-IN2120497410_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
