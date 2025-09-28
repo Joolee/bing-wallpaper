@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-29 | [Ville de Pienza, Toscane, Italie (© zpagistock/Getty Images)](https://cn.bing.com/th?id=OHR.PienzaItaly_FR-CA5250527175_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-28 | [Érable rouge en automne, Canada (© LiuSol/Getty Images)](https://cn.bing.com/th?id=OHR.RedMapleleaf_FR-CA4700405844_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-27 | [Tamia mineur, forêt nationale de Kootenai, Montana, États-Unis (© Donald M. Jones/Minden Pictures)](https://cn.bing.com/th?id=OHR.AutumnChipmunk_FR-CA4393122356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

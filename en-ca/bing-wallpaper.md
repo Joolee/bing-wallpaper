@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-29 | [Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)](https://cn.bing.com/th?id=OHR.PienzaItaly_EN-CA8507230327_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-28 | [Red maple in fall, Canada (© LiuSol/Getty Images)](https://cn.bing.com/th?id=OHR.RedMapleleaf_EN-CA8222399050_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-27 | [Least chipmunk, Kootenai National Forest, Montana, United States (© Donald M. Jones/Minden Pictures)](https://cn.bing.com/th?id=OHR.AutumnChipmunk_EN-CA7669023856_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
