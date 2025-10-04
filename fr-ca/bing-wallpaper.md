@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-05 | [« Inside Out » par JR, place Nathan Phillips, Nuit Blanche 2015, Toronto (© Melissa Renwick/Contributor/Getty Images)](https://cn.bing.com/th?id=OHR.InsideOutNB_FR-CA5265996893_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-04 | [Bruyère à Glen Brittle, île de Skye, Écosse (© Adam Mowery/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.SkyeHeather_FR-CA5322356431_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-03 | [Site naturel de Oxbow Bend, parc national du Grand Teton, Wyoming, États-Unis (© DanitaDelimont.com/AWL Images/SuperStock)](https://cn.bing.com/th?id=OHR.OxbowBend_FR-CA6912917825_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
