@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-06 | [Chouette boréale dans une forêt d’Europe centrale (© Ondrej Prosicky/Alamy)](https://cn.bing.com/th?id=OHR.TeacherOwl_FR-CA5450813824_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-05 | [« Inside Out » par JR, place Nathan Phillips, Nuit Blanche 2015, Toronto (© Melissa Renwick/Contributor/Getty Images)](https://cn.bing.com/th?id=OHR.InsideOutNB_FR-CA5265996893_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-04 | [Bruyère à Glen Brittle, île de Skye, Écosse (© Adam Mowery/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.SkyeHeather_FR-CA5322356431_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
