@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-07 | [Fall colours below Mount Sneffels near Ridgway, Colorado, United States (© Grant Ordelheide/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.RidgwayAspens_EN-IN9829823825_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-06 | [Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)](https://cn.bing.com/th?id=OHR.AnshunBridge_EN-IN9593478408_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-05 | [Jahangir Mahal, Orchha, Madhya Pradesh (© Alf/Getty Images)](https://cn.bing.com/th?id=OHR.JahangirMahal_EN-IN7628563681_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

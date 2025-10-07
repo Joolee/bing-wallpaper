@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-08 | [Couleurs d’automne au pied du mont Sneffels, Colorado, États-Unis (© Grant Ordelheide/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.RidgwayAspens_FR-CA5613578369_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-07 | [Pont Anshun illuminé pour la fête de la mi-automne, Chengdu, Chine (© Philippe LEJEANVRE/Getty Images)](https://cn.bing.com/th?id=OHR.AnshunBridge_FR-CA5523096910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-06 | [Chouette boréale dans une forêt d’Europe centrale (© Ondrej Prosicky/Alamy)](https://cn.bing.com/th?id=OHR.TeacherOwl_FR-CA5450813824_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
