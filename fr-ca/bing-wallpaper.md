@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-13 | [Village de Saranac Lake, Montagnes Adirondacks, New York, États-Unis (© DenisTangneyJr/Getty Images)](https://cn.bing.com/th?id=OHR.SaranacLake_FR-CA6110965968_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-12 | [Cane branchu, États-Unis (© ps50ace/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.WoodDuckHen_FR-CA5874866623_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-11 | [Récif corallien entourant l’île de Monuriki, archipel des Mamanuca, Fidji (© David Wall/SuperStock)](https://cn.bing.com/th?id=OHR.MonurikiFiji_FR-CA5819012564_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
