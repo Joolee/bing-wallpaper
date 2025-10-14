@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-15 | [Village of Oia, Santorini, Greece (© f9photos/Getty Images)](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-CA2309047812_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-14 | [River rapids in Algonquin Provincial Park, Ontario (© Pgiam/Getty Images)](https://cn.bing.com/th?id=OHR.AlgonParkOnt_EN-CA8810326454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-13 | [Village of Saranac Lake, Adirondack Mountains, New York, United States (© DenisTangneyJr/Getty Images)](https://cn.bing.com/th?id=OHR.SaranacLake_EN-CA8587691019_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
