@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-16 | [Champignon Laccaria amethystina, Seabeck, Washington, États-Unis (© Danita Delimont/Shutterstock)](https://cn.bing.com/th?id=OHR.AmethystLaccaria_FR-CA5987509321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-15 | [Village d’Oia, Santorin, Grèce (© f9photos/Getty Images)](https://cn.bing.com/th?id=OHR.OiaSantorini_FR-CA5934910466_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-14 | [Rapides de la rivière dans le parc provincial Algonquin, Ontario (© Pgiam/Getty Images)](https://cn.bing.com/th?id=OHR.AlgonParkOnt_FR-CA7190465944_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

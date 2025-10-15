@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-15 | [Amethyst laccaria mushrooms, Seabeck, Washington, United States (© Danita Delimont/Shutterstock)](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-IN1327848044_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-14 | [Village of Oia, Santorini, Greece (© f9photos/Getty Images)](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-IN1120659407_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-13 | [Fishing boat on a beach in Mamallapuram, Tamil Nadu (© Danielrao/Getty Images)](https://cn.bing.com/th?id=OHR.MamallapuramBoat_EN-IN7710066435_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
