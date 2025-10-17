@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-17 | [Rock River Falls, Upper Peninsula, Michigan, United States (© Matt Anderson Photography/Getty Images)](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-IN5207367591_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-16 | [Eurasian lynx, Siberia (© Mario Plechaty Photograph/Shutterstock)](https://cn.bing.com/th?id=OHR.SiberianLynx_EN-IN1490502739_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-15 | [Amethyst laccaria mushrooms, Seabeck, Washington, United States (© Danita Delimont/Shutterstock)](https://cn.bing.com/th?id=OHR.AmethystLaccaria_EN-IN1327848044_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

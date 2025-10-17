@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-18 | [Aurores boréales au-dessus du lac Patricia, parc national de Jasper, Alberta (© Daniel Viñé Garcia/Getty Images)](https://cn.bing.com/th?id=OHR.JasperFestival_FR-CA3527865015_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-17 | [Lynx de Sibérie, Sibérie (© Mario Plechaty Photograph/Shutterstock)](https://cn.bing.com/th?id=OHR.SiberianLynx_FR-CA6049925751_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-16 | [Champignon Laccaria amethystina, Seabeck, Washington, États-Unis (© Danita Delimont/Shutterstock)](https://cn.bing.com/th?id=OHR.AmethystLaccaria_FR-CA5987509321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
