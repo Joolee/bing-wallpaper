@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-20 | [Pommes prêtes à être récoltées, Minnesota, États-Unis (© Tammi Mild/Getty Images)](https://cn.bing.com/th?id=OHR.AppleHarvest_FR-CA4246985686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-19 | [Site néolithique de la coline de Silbury, Tilshead, Wiltshire, Angleterre (© dbstockphoto/Getty Images)](https://cn.bing.com/th?id=OHR.SilburyHill_FR-CA4132362264_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-18 | [Aurores boréales au-dessus du lac Patricia, parc national de Jasper, Alberta (© Daniel Viñé Garcia/Getty Images)](https://cn.bing.com/th?id=OHR.JasperFestival_FR-CA3527865015_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
