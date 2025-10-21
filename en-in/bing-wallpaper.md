@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-21 | [Oil lamps lit during Diwali (© phive2015/Getty Images)](https://cn.bing.com/th?id=OHR.OilLamps_EN-IN0305267650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-20 | [Hoffmann's two-toed sloth, Ecuador (© Murray Cooper/Minden Pictures)](https://cn.bing.com/th?id=OHR.HoffmansSloth_EN-IN5791944610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-19 | [Apples ready for harvest, Minnesota, United States (© Tammi Mild/Getty Images)](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-IN5534604736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
