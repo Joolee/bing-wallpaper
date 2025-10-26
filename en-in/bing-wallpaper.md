@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-26 | [Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)](https://cn.bing.com/th?id=OHR.AfricanRaven_EN-IN6796929078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-25 | [Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-IN6497772710_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-24 | [Night view of the RMS Queen Mary, Long Beach, California, United States (© Kit Leong/Shutterstock)](https://cn.bing.com/th?id=OHR.QueenMary_EN-IN6335003575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
