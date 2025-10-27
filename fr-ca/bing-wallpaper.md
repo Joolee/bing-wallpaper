@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-28 | [Corbeau corbivau, Montagnes Simien, Éthiopie (© Ignacio Yufera/FLPA/Minden Pictures)](https://cn.bing.com/th?id=OHR.AfricanRaven_FR-CA5487866311_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-27 | [Ferme de citrouilles en Caroline du Nord, États-Unis (© Matthew H Irvin/Getty Images)](https://cn.bing.com/th?id=OHR.PumpkinFarm_FR-CA5403887507_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-26 | [Vue aérienne de la tourbière, réserve de Martimoaapa, Finlande (© romikatarina/Shutterstock)](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_FR-CA5308818561_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
