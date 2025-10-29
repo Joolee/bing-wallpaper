@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-30 | [Lauriers centenaires de la forêt de Fanal, île de Madère, Portugal (© Lukas Jonaitis/Shutterstock)](https://cn.bing.com/th?id=OHR.FanalForest_FR-CA5981677765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-29 | [Porte gothique, rochers d'Adršpach-Teplice, Tchéquie (© Kseniya_Milner/Getty Images)](https://cn.bing.com/th?id=OHR.TepliceRocks_FR-CA5818772698_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-28 | [Corbeau corbivau, Montagnes Simien, Éthiopie (© Ignacio Yufera/FLPA/Minden Pictures)](https://cn.bing.com/th?id=OHR.AfricanRaven_FR-CA5487866311_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
