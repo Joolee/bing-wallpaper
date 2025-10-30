@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-30 | [Camels at Jaisalmer, Rajasthan, India (© f9photos/Getty Images)](https://cn.bing.com/th?id=OHR.PushkarFair_EN-IN7248040171_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-29 | [Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)](https://cn.bing.com/th?id=OHR.FanalForest_EN-IN7092889318_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-28 | [The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)](https://cn.bing.com/th?id=OHR.TepliceRocks_EN-IN6945703275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
