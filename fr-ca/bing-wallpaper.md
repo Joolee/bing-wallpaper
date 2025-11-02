@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-03 | [Feuilles d’érable et forêt de bambous à Arashiyama, Kyoto, Japon (© DoctorEgg/Getty Images)](https://cn.bing.com/th?id=OHR.KyotoMaple_FR-CA4615731048_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-02 | [Bisons près des sources chaudes de Yellowstone, Wyoming, États-Unis (© Cheryl Ramalho/Getty Images)](https://cn.bing.com/th?id=OHR.BisonSprings_FR-CA4358928042_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-01 | [Différentes variétés de citrouilles et de courges (© davidfillion/Getty Images)](https://cn.bing.com/th?id=OHR.PumpkinHalloween_FR-CA4476250622_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
