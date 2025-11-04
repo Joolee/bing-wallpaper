@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-05 | [Tower Bridge, Londres, Angleterre (© Nick Brundle Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TowerBridgeUK_FR-CA4980014459_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-04 | [Méduses dans le Pacifique, Guerrero, Mexique (© Christian Vizl/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.MexicoJelly_FR-CA4822308838_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-03 | [Feuilles d’érable et forêt de bambous à Arashiyama, Kyoto, Japon (© DoctorEgg/Getty Images)](https://cn.bing.com/th?id=OHR.KyotoMaple_FR-CA4615731048_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
