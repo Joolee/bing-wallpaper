@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-09 | [Pitons rocheux de la plage de Bandon, Oregon, États-Unis (© Grant Ordelheide/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BandonBeach_FR-CA6716981338_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-08 | [Ours polaire à Churchill, Manitoba, Canada (© karen crewe/Getty Images)](https://cn.bing.com/th?id=OHR.WillowBear_FR-CA5617207363_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-07 | [Lanterne colorées au temple de Wat Phra That Hariphunchai, Lamphun, Thaïlande (© MR. ANUJAK JAIMOOK/Getty Images)](https://cn.bing.com/th?id=OHR.LanternsThailand_FR-CA5464374973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
