@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-13 | [Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)](https://cn.bing.com/th?id=OHR.ColosseumRome_EN-CA9601372901_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-12 | [Quiver trees at night with the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)](https://cn.bing.com/th?id=OHR.AloeDichotoma_EN-CA9316195338_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-11 | [Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota, United States (© Greg Vaughn/Getty Images)](https://cn.bing.com/th?id=OHR.PrairieDogTown_EN-CA8014660733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
