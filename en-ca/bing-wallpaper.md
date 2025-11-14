@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-15 | [Mother manatee and calf, Crystal River, Florida, United States (© Gregory Sweeney/Getty Images)](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-CA3337819945_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-14 | [The 2020 Distillery Winter Village, Toronto (© Steve Russell/Toronto Star via Getty Images)](https://cn.bing.com/th?id=OHR.TntChrisMkt_EN-CA8094529209_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-13 | [Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)](https://cn.bing.com/th?id=OHR.ColosseumRome_EN-CA9601372901_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
