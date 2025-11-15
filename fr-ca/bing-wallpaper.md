@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-16 | [Route de Irohazaka en automne, Nikkō, Tochigi, Japon (© oneinchpunch/Shutterstock)](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_FR-CA8149319279_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-15 | [Lamantin femelle et son petit, Crystal River, Floride, États-Unis (© Gregory Sweeney/Getty Images)](https://cn.bing.com/th?id=OHR.ManateeBaby_FR-CA4816280060_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-14 | [Village d’hiver de la Distillerie 2020, Toronto (© Steve Russell/Toronto Star via Getty Images)](https://cn.bing.com/th?id=OHR.TntChrisMkt_FR-CA7518325254_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
