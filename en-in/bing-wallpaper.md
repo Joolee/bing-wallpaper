@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-16 | [A traboule in Lyon, France (© TPopova/Getty Images)](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-IN1252380209_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-15 | [Irohazaka Road in autumn, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_EN-IN1196810691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-14 | [Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://cn.bing.com/th?id=OHR.SaypeGeneva_EN-IN7312721048_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
