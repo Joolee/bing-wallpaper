@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-18 | [Renard roux, Canada (© RT-Images/Getty Images)](https://cn.bing.com/th?id=OHR.RedFoxVulpes_FR-CA6139062460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-17 | [Traboule du Vieux Lyon, France (© TPopova/Getty Images)](https://cn.bing.com/th?id=OHR.LyonTraboules_FR-CA2893861678_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-16 | [Route de Irohazaka en automne, Nikkō, Tochigi, Japon (© oneinchpunch/Shutterstock)](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_FR-CA8149319279_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
