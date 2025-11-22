@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-22 | [Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)](https://cn.bing.com/th?id=OHR.LeshanBuddha_EN-IN4570955988_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-21 | [Small island with a building near Ezhikkara, Kerala (© gulfu photography/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.KeralaEzhikara2025_EN-IN4420432928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-20 | [Mother manatee and calf, Crystal River, Florida, United States (© Gregory Sweeney/Getty Images)](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-IN4061513303_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
