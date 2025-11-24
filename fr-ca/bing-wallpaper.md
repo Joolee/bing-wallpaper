@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-25 | [Fort de Gwalior, Madhya Pradesh, Inde (© ImagesofIndia/Shutterstock)](https://cn.bing.com/th?id=OHR.GwailorFort_FR-CA1771383386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-24 | [Fossile d’ammonite de Madagascar (© ThomasLENNE/Shutterstock)](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_FR-CA1488835472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-23 | [Grand Bouddha de Leshan, Sichuan, Chine (© www.anotherdayattheoffice.org/Getty Images)](https://cn.bing.com/th?id=OHR.LeshanBuddha_FR-CA1397041954_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
