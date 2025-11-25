@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-25 | [The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TreviFountain_EN-IN5220218283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-24 | [Gwalior Fort, Madhya Pradesh (© ImagesofIndia/Shutterstock)](https://cn.bing.com/th?id=OHR.GwailorFort_EN-IN5085312905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-23 | [Ammonite fossil from Madagascar (© ThomasLENNE/Shutterstock)](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_EN-IN4893365399_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
