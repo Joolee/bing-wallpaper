@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-28 | [Jetée d’Eastbourne, East Sussex, Angleterre (© Tolga_TEZCAN/Getty Images)](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_FR-CA2166114855_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-27 | [Verger d’oliviers dans la Serra de Tramuntana, à Majorque, îles Baléares, Espagne (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.OliveGrove_FR-CA2040413992_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-26 | [La fontaine de Trevi, Rome, Italie (© Nico De Pasquale Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TreviFountain_FR-CA1921739186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
