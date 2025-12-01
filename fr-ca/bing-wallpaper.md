@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-02 | [Arche naturelle sculptée dans un iceberg, Antarctique (© Gabrielle/Adobe Stock)](https://cn.bing.com/th?id=OHR.AntarcticArch_FR-CA4392510917_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-01 | [Marché de Noël à Leipzig, Allemagne (© Krzysztof Baranowski/Getty Images)](https://cn.bing.com/th?id=OHR.LeipzigMarket_FR-CA4112876740_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-30 | [Cerf élaphe dans le parc national De Hoge Veluwe, Pays-Bas (© CreativeNature_nl/Getty Images)](https://cn.bing.com/th?id=OHR.DeerVeluwe_FR-CA3976157259_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

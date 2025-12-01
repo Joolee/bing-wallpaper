@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2025-12)
-![](https://cn.bing.com/th?id=OHR.LeipzigMarket_FR-CA4112876740_UHD.jpg&w=1000)Today: [Marché de Noël à Leipzig, Allemagne (© Krzysztof Baranowski/Getty Images)](https://cn.bing.com/th?id=OHR.LeipzigMarket_FR-CA4112876740_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.AntarcticArch_FR-CA4392510917_UHD.jpg&w=1000)Today: [Arche naturelle sculptée dans un iceberg, Antarctique (© Gabrielle/Adobe Stock)](https://cn.bing.com/th?id=OHR.AntarcticArch_FR-CA4392510917_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
-|![](https://cn.bing.com/th?id=OHR.LeipzigMarket_FR-CA4112876740_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-12-01 [download 4k](https://cn.bing.com/th?id=OHR.LeipzigMarket_FR-CA4112876740_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+|![](https://cn.bing.com/th?id=OHR.AntarcticArch_FR-CA4392510917_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-12-02 [download 4k](https://cn.bing.com/th?id=OHR.AntarcticArch_FR-CA4392510917_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.LeipzigMarket_FR-CA4112876740_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-12-01 [download 4k](https://cn.bing.com/th?id=OHR.LeipzigMarket_FR-CA4112876740_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
