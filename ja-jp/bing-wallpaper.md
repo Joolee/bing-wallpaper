@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-02 | [ウィロー湖とブラックバーン山, 米国 アラスカ州 (© Patrick J. Endres/Getty Images)](https://cn.bing.com/th?id=OHR.WillowLake_JA-JP5149786689_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-01 | [南極の氷山に刻まれた天然のアーチ, 南極大�� (© Gabrielle/Adobe Stock)](https://cn.bing.com/th?id=OHR.AntarcticArch_JA-JP4876185328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-01 | [南極の氷山に刻まれた天然のアーチ, 南極大陸 (© Gabrielle/Adobe Stock)](https://cn.bing.com/th?id=OHR.AntarcticArch_JA-JP4876185328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
