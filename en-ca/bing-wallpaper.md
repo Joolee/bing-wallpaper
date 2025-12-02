@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-03 | [Whistler, British Columbia (© VisualCommunications/Getty Images)](https://cn.bing.com/th?id=OHR.WhistlerVillage_EN-CA2405537581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-02 | [Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)](https://cn.bing.com/th?id=OHR.AntarcticArch_EN-CA2247302167_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-01 | [Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-CA1551508229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
