@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-04 | [Indian Navy sailors rehearse for Navy Day at Mumbai's Gateway of India, 1 December 2016 (© Anshuman Poyrekar/Hindustan Times/Getty Images)](https://cn.bing.com/th?id=OHR.IndianNavyDay2025_EN-IN1202327501_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-03 | [Sandhill cranes at sunrise, Bosque del Apache National Wildlife Refuge, New Mexico (© Jack Dykinga/Minden Pictures)](https://cn.bing.com/th?id=OHR.BosqueCranes_EN-IN0755694469_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-02 | [Willow Lake and Mount Blackburn, Wrangell-St. Elias National Park and Preserve, Alaska, United States (© Patrick J. Endres/Getty Images)](https://cn.bing.com/th?id=OHR.WillowLake_EN-IN0569791558_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
