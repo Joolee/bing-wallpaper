@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-06 | [Site maya de Copán, Honduras (© diegograndi/Getty Images)](https://cn.bing.com/th?id=OHR.CopanRuins_FR-CA5865521974_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-05 | [Guépard dans la Réserve nationale du Maasai Mara, Narok, Kenya (© Andy Rouse/naturepl.com)](https://cn.bing.com/th?id=OHR.CheetahMound_FR-CA5750613409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-04 | [Grues du Canada au lever du soleil, Réserve faunique nationale de Bosque del Apache, Nouveau-Mexique, États-Unis (© Jack Dykinga/Minden Pictures)](https://cn.bing.com/th?id=OHR.BosqueCranes_FR-CA5518531207_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
