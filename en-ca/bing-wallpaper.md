@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-08 | [A pine forest in Alsace, France (© alekseystemmer/Getty Images)](https://cn.bing.com/th?id=OHR.MistyPineForest_EN-CA3344515413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-07 | [Spider webs in Everglades National Park, Florida, United States (© Troy Harrison/Getty Images)](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-CA3131159053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-06 | [Maya site of Copán, Honduras (© diegograndi/Getty Images)](https://cn.bing.com/th?id=OHR.CopanRuins_EN-CA2961889740_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
