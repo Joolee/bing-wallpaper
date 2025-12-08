@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-09 | [Christmas lights on buildings of Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.ComoChristmas_EN-CA3615556860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-08 | [A pine forest in Alsace, France (© alekseystemmer/Getty Images)](https://cn.bing.com/th?id=OHR.MistyPineForest_EN-CA3344515413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-07 | [Spider webs in Everglades National Park, Florida, United States (© Troy Harrison/Getty Images)](https://cn.bing.com/th?id=OHR.EvergladesSunrise_EN-CA3131159053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
