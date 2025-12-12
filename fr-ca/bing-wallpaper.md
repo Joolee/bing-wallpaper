@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-13 | [Le pont suspsendu de Capilano et son parc illuminés, Vancouver, Colombie-Britannique (© Brian Caissie/Getty Images)](https://cn.bing.com/th?id=OHR.SuspensionLights_FR-CA6920947835_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-12 | [Le sommet du mont Everest au coucher du soleil, vu depuis Renjo La, Népal (© shoults/Alamy)](https://cn.bing.com/th?id=OHR.EverestGlow_FR-CA8671922583_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-11 | [Intérieur de la Mosquée-Cathédrale de Cordoue, Andalousie, Espagne (© Elena Zolotova/Getty Images)](https://cn.bing.com/th?id=OHR.CordobaCathedral_FR-CA8527580622_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-13 | [Illuminated Capilano Suspension Bridge Park, Vancouver, British Columbia (© Brian Caissie/Getty Images)](https://cn.bing.com/th?id=OHR.SuspensionLights_EN-CA1736218976_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-12 | [The summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)](https://cn.bing.com/th?id=OHR.EverestGlow_EN-CA4280192102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-11 | [Interior of the Mosque-Cathedral of Córdoba, Andalusia, Spain (© Elena Zolotova/Getty Images)](https://cn.bing.com/th?id=OHR.CordobaCathedral_EN-CA3988311305_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
