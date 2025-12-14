@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-15 | [Mésange bicolore perchée sur des branches de pin, Massachusetts, États-Unis (© Tim Laman/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.TuftedTitmouse_FR-CA8502944575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-14 | [Rivière Merced, parc national de Yosemite, Californie, États-Unis (© Ron and Patty Thomas/Getty Images)](https://cn.bing.com/th?id=OHR.YosemiteWinter_FR-CA7190961355_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-13 | [Le pont suspsendu de Capilano et son parc illuminés, Vancouver, Colombie-Britannique (© Brian Caissie/Getty Images)](https://cn.bing.com/th?id=OHR.SuspensionLights_FR-CA6920947835_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
