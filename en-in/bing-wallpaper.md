@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-15 | [Light decorations on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)](https://cn.bing.com/th?id=OHR.AmsterdamLights_EN-IN6264972688_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-14 | [Royal Bengal tiger (© sourabh/Getty Images)](https://cn.bing.com/th?id=OHR.RBtiger_EN-IN6114298961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-13 | [Merced River, Yosemite National Park, California, United States (© Ron and Patty Thomas/Getty Images)](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-IN5848672319_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
