@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-17 | [Lutins faits main sur un marché de Noël (© Veronika Seppanen/Shutterstock)](https://cn.bing.com/th?id=OHR.ChristmasGnomes_FR-CA9024355683_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-16 | [Décorations lumineuses sur le canal Spiegelgracht, Amsterdam, Pays-Bas (© Amith Nag Photography/Getty Images)](https://cn.bing.com/th?id=OHR.AmsterdamLights_FR-CA8725223562_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-15 | [Mésange bicolore perchée sur des branches de pin, Massachusetts, États-Unis (© Tim Laman/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.TuftedTitmouse_FR-CA8502944575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

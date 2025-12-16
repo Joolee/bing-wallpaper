@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-17 | [Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)](https://cn.bing.com/th?id=OHR.ChristmasGnomes_EN-CA0774102277_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-16 | [Light decorations on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)](https://cn.bing.com/th?id=OHR.AmsterdamLights_EN-CA0631336225_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-15 | [Tufted titmouse perched on pine boughs, Massachusetts, United States (© Tim Laman/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-CA0345023104_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
