@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-20 | [Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.BormioItaly_EN-CA1256491790_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-19 | [Temple of the Sun, Capitol Reef National Park, Utah, United States (© Austin Cronnelly/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.CathedralValley_EN-CA1097326086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-18 | [Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)](https://cn.bing.com/th?id=OHR.FrostySquirrel_EN-CA0949357975_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

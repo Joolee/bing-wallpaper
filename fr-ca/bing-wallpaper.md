@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-20 | [Paysage enneigé à Bormio, Lombardie, Italie (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.BormioItaly_FR-CA9819049708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-19 | [Temple du Soleil, parc national de Capitol Reef, Utah, États-Unis (© Austin Cronnelly/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.CathedralValley_FR-CA9473137738_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-18 | [Écureuil roux d’Eurasie dans le Northumberland, Angleterre (© Michael_Conrad/Getty Images)](https://cn.bing.com/th?id=OHR.FrostySquirrel_FR-CA9290666519_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
