@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-23 | [« Casse-Noisette » interprété par l’Opéra et Ballet d’État turc à Ankara, Turquie (© Anadolu/Getty Images)](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_FR-CA0871951944_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-22 | [Lumière de l’aube à travers les arbres givrés, Suède (© Schon/Getty Images)](https://cn.bing.com/th?id=OHR.SwedenSolstice_FR-CA0269299029_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-21 | [Étoiles de Herrnhut, Allemagne (© artas/Getty Images)](https://cn.bing.com/th?id=OHR.StarLanterns_FR-CA0069939651_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
