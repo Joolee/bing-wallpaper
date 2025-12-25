@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-25 | [Snow globes at a Christmas market in Heidelberg, Germany (© George Pachantouris/Getty Images)](https://cn.bing.com/th?id=OHR.SantaGlobe_EN-IN8671777119_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-24 | [Snowy chapel with Christmas tree in the Bavarian Alps, Germany (© mauritius images GmbH/Alamy)](https://cn.bing.com/th?id=OHR.ElmauChapel_EN-IN8516225171_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-23 | [Reindeer during winter snowfall, Lapland, Finland (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.ReindeerFinland_EN-IN8311415017_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

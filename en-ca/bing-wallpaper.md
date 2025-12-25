@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-26 | [Christmas trees in Old Quebec (© Jean Surprenant/Getty Images)](https://cn.bing.com/th?id=OHR.XmasTree_EN-CA1915827603_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-25 | [Snowy chapel with Christmas tree in the Bavarian Alps, Germany (© mauritius images GmbH/Alamy)](https://cn.bing.com/th?id=OHR.ElmauChapel_EN-CA2001669304_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-24 | [Reindeer during winter snowfall, Lapland, Finland (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.ReindeerFinland_EN-CA1872537703_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
