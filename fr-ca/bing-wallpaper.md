@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-27 | [Cathédrale de Salisbury, Wiltshire, Angleterre (© Julian Elliott Photography/Getty Images)](https://cn.bing.com/th?id=OHR.WiltshireDawn_FR-CA4133487819_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-26 | [Sapins de Noël dans le Vieux-Québec (© Jean Surprenant/Getty Images)](https://cn.bing.com/th?id=OHR.XmasTree_FR-CA7882563077_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-25 | [Chapelle avec sapin de Noël dans les Alpes bavaroises, Allemagne (© mauritius images GmbH/Alamy)](https://cn.bing.com/th?id=OHR.ElmauChapel_FR-CA1701868165_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
