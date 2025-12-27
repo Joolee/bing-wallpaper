@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-28 | [Plate ice along Lake Superior, Grand Marais, Minnesota, United States (© wanderluster/Getty Images)](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-CA3067089531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-27 | [Salisbury Cathedral, Wiltshire, England (© Julian Elliott Photography/Getty Images)](https://cn.bing.com/th?id=OHR.WiltshireDawn_EN-CA2897648825_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-26 | [Christmas trees in Old Quebec (© Jean Surprenant/Getty Images)](https://cn.bing.com/th?id=OHR.XmasTree_EN-CA1915827603_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
