@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-29 | [St. Gregory Church in Ani Ruins, Kars, Türkiye (© Kenan Talas/Getty Images)](https://cn.bing.com/th?id=OHR.AniTurkey_EN-IN9670620964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-28 | [Aerial view of a sandy beach in Mangaluru, Karnataka (© Amith Nag Photography/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.MangaloreBeach2025_EN-IN9427603327_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-27 | [Plate ice along Lake Superior, Grand Marais, Minnesota, United States (© wanderluster/Getty Images)](https://cn.bing.com/th?id=OHR.SuperiorIceMN_EN-IN9103108275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
