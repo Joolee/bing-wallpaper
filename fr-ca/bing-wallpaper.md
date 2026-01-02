@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-03 | [Vue aérienne de Venise, Italie (© Clement Leonard/Getty Images)](https://cn.bing.com/th?id=OHR.VeniceView_FR-CA2042016307_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-02 | [Un renard polaire endormi (© Chansak Joe/Getty Images)](https://cn.bing.com/th?id=OHR.NewYearFox_FR-CA8773623003_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-01 | [Feux d’artifice du nouvel an à Toronto (© LeoPatrizi/Getty Images)](https://cn.bing.com/th?id=OHR.NYEToronto_FR-CA8052443144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

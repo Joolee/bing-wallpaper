@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-02 | [Aerial view of Venice, Italy (© Clement Leonard/Getty Images)](https://cn.bing.com/th?id=OHR.VeniceView_EN-IN1223901248_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-01 | [Arctic fox sleeping (© Chansak Joe/Getty Images)](https://cn.bing.com/th?id=OHR.NewYearFox_EN-IN0228812911_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-31 | [New Year's Eve, Oberbaum Bridge, Berlin, Germany (© spreephoto.de/Getty Images)](https://cn.bing.com/th?id=OHR.GermanyNewYear_EN-IN0096135546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
