@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-06 | [Troupeau d’impalas, réserve de Londolozi, Afrique du Sud (© Mint Images/Getty Images)](https://cn.bing.com/th?id=OHR.ImpalaRooibok_FR-CA8935585663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-05 | [Mont Kings, montagnes Chugach, Alaska, États-Unis (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.KingMountain_FR-CA8588334566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-04 | [Chute de Staubbach à Lauterbrunnen, canton de Berne, Suisse (© pongnathee kluaythong/Getty Images)](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_FR-CA9163124101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
