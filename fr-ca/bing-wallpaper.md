@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-12 | [Murs bleus de Chefchaouen, Maroc (© AnetteAndersen/Getty Images)](https://cn.bing.com/th?id=OHR.BlueMorocco_FR-CA7024452230_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-11 | [Le reflet du Cervin sur le lac Stellisee à l’aube, Zermatt, Suisse (© Andy Trowbridge/naturepl.com)](https://cn.bing.com/th?id=OHR.MatterhornSunrise_FR-CA6860129281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-10 | [Séquoias géants du Muir Woods National Monument, Californie, États-Unis (© photo by canderson/Getty Images)](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_FR-CA6499888955_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
