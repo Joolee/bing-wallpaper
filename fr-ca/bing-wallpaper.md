@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-15 | [Les escaliers de la forteresse de Palamède, Nafplio, Grèce (© George Pachantouris/Getty Images)](https://cn.bing.com/th?id=OHR.PalamidiFortress_FR-CA8335359960_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-14 | [Vallée de Clwyd, Pays de Galles (© Valerie Blencowe/Getty Images)](https://cn.bing.com/th?id=OHR.WalesWinter_FR-CA8107586040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-13 | [Une loutre d’Europe et son petit, Estonie (© Sven Zacek/naturepl.com)](https://cn.bing.com/th?id=OHR.SnowOtters_FR-CA7154091849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
