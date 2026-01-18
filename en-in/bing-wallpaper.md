@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-18 | [White Sands National Park, New Mexico, United States (© Francesco Carucci/Getty Images)](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-IN0223535829_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-17 | [Basilica of San Francesco di Paola, Naples, Italy (© javarman3/Getty Images)](https://cn.bing.com/th?id=OHR.NaplesBasilica_EN-IN0040202907_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-16 | [Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-IN9874770632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
