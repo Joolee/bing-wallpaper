@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-20 | [Parc National des White Sands, Nouveau-Mexique, États-Unis (© Francesco Carucci/Getty Images)](https://cn.bing.com/th?id=OHR.BubblesAbraham_FR-CA0472856802_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-19 | [Parc National des White Sands, Nouveau-Mexique, États-Unis (© Francesco Carucci/Getty Images)](https://cn.bing.com/th?id=OHR.WhiteSandsNM_FR-CA0263318524_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-18 | [Basilique San Francesco di Paola, Naples, Italie (© javarman3/Getty Images)](https://cn.bing.com/th?id=OHR.NaplesBasilica_FR-CA0092910060_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
