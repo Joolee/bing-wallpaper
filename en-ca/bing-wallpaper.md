@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-21 | [Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)](https://cn.bing.com/th?id=OHR.IciclePenguin_EN-CA6119036779_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-20 | [Frozen Abraham Lake, Alberta (© Luis F Arevalo/Getty Images)](https://cn.bing.com/th?id=OHR.BubblesAbraham_EN-CA5502622883_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-19 | [White Sands National Park, New Mexico, United States (© Francesco Carucci/Getty Images)](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-CA4611672923_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
