@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-21 | [Sand dunes in the Thar Desert, Rajasthan (© f9photos/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.RajasthanSandDunes2025_EN-IN0938855919_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-20 | [Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)](https://cn.bing.com/th?id=OHR.IciclePenguin_EN-IN0585544913_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-19 | [Frozen Abraham Lake, Alberta, Canada (© Luis F Arevalo/Getty Images)](https://cn.bing.com/th?id=OHR.BubblesAbraham_EN-IN0433961351_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
