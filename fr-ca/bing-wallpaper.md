@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-23 | [Karlovy Vary, Bohème, Tchéquie (© Henryk Sadura/Getty Images)](https://cn.bing.com/th?id=OHR.KarlovyVary_FR-CA1267212524_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-22 | [Écureuil roux d’Eurasie (© Galina Jacyna/Getty Images)](https://cn.bing.com/th?id=OHR.BerrySquirrel_FR-CA1112427108_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-21 | [Un manchot papou, Île Petermann, Antarctique (© Paul Souders/DanitaDelimont.com/Alamy)](https://cn.bing.com/th?id=OHR.IciclePenguin_FR-CA0847968880_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
