@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-24 | [Des moutons dans la neige, Islande (© Christophe Lehenaff/Getty Images)](https://cn.bing.com/th?id=OHR.IcelandSheep_FR-CA9355432333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-23 | [Karlovy Vary, Bohème, Tchéquie (© Henryk Sadura/Getty Images)](https://cn.bing.com/th?id=OHR.KarlovyVary_FR-CA1267212524_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-22 | [Écureuil roux d’Eurasie (© Galina Jacyna/Getty Images)](https://cn.bing.com/th?id=OHR.BerrySquirrel_FR-CA1112427108_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
