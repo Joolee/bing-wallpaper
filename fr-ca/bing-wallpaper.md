@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-26 | [Burns National Heritage Park, Ayr, Écosse, Royaume-Uni (© Alister Firth/Alamy)](https://cn.bing.com/th?id=OHR.BurnsPark_FR-CA9565786603_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-25 | [Le village d’Andermatt, Suisse (© Xantana/Getty Images)](https://cn.bing.com/th?id=OHR.AndermattSwiss_FR-CA1171685522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-24 | [Des moutons dans la neige, Islande (© Christophe Lehenaff/Getty Images)](https://cn.bing.com/th?id=OHR.IcelandSheep_FR-CA9355432333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
