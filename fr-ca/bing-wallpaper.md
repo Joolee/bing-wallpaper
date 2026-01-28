@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-29 | [Parc National de Whanganui, Retaruke, Nouvelle-Zélande (© Matthew Micah Wright/Getty Images)](https://cn.bing.com/th?id=OHR.WhanganuiPark_FR-CA9921690496_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-28 | [Des pélicans frisés sur le Lac Kerkini, Grèce (© Guy Edwardes/naturepl.com)](https://cn.bing.com/th?id=OHR.DalmationPelicans_FR-CA4167937992_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-27 | [Château de Neuschwanstein, Bavière, Allemagne (© www.fredconcha.com @ All Rights Reserved/Getty Images)](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_FR-CA3834454051_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-28 | [Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)](https://cn.bing.com/th?id=OHR.WhanganuiPark_EN-IN0247027182_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-27 | [Dalmatian pelicans, Lake Kerkini, Greece (© Guy Edwardes/naturepl.com)](https://cn.bing.com/th?id=OHR.DalmationPelicans_EN-IN8609760555_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-26 | [Balloons released during the 2021 Republic Day parade in New Delhi (© T. Narayan/Bloomberg/Getty Images)](https://cn.bing.com/th?id=OHR.RepublicDay2026_EN-IN4289196268_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
