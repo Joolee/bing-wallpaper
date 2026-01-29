@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-30 | [The eight-story open atrium of Milwaukee City Hall, Wisconsin, United States (© lavin photography/Getty Images)](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-CA4166565215_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-29 | [Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)](https://cn.bing.com/th?id=OHR.WhanganuiPark_EN-CA8133159309_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-28 | [Dalmatian pelicans, Lake Kerkini, Greece (© Guy Edwardes/naturepl.com)](https://cn.bing.com/th?id=OHR.DalmationPelicans_EN-CA1377390120_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
