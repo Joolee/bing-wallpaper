@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-02 | [Colourful house in Olinda, Brazil (© Robert Pekar/Alamy)](https://cn.bing.com/th?id=OHR.Olinda_EN-CA6673268018_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-01 | [Plains zebras, Etosha National Park, Namibia (© Mogens Trolle/Shutterstock)](https://cn.bing.com/th?id=OHR.EtoshaZebra_EN-CA5067971826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-31 | ['Kimono' sculpted by Hiroaki Kimura and Masaki Takahashi of Japan, Winterlude 2010 (© PensiveDragon/Shutterstock)](https://cn.bing.com/th?id=OHR.WinterludeKimono_EN-CA4738768244_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
