@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-04 | [Emerald Bay and Fannette Island, Lake Tahoe, California, United States (© Bill Stevenson/Cavan Images)](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-CA7084329765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-03 | [Alpine marmots, Hohe Tauern National Park, Austria (© Raimund Linke/Getty Images)](https://cn.bing.com/th?id=OHR.AlpineMarmots_EN-CA4426727478_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-02 | [Colourful house in Olinda, Brazil (© Robert Pekar/Alamy)](https://cn.bing.com/th?id=OHR.Olinda_EN-CA6673268018_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
