@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-05 | [Le milan royal sous la neige (© Carl Mckie/500px/Getty Images)](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_FR-CA8000079517_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-04 | [Emerald Bay et Fanette Island, Lac Tahoe, Californie, États-Unis (© Bill Stevenson/Cavan Images)](https://cn.bing.com/th?id=OHR.FanetteIsland_FR-CA7721428304_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-03 | [Des marmottes des Alpes, Parc National des Hohe Tauern, Autriche (© Raimund Linke/Getty Images)](https://cn.bing.com/th?id=OHR.AlpineMarmots_FR-CA6904692370_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
