@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-07 | [Le Ra Gusela, col de Giau Pass, près de Cortina d'Ampezzo, Italie (© Tomasz Podolski/Getty Images)](https://cn.bing.com/th?id=OHR.GiauPass_FR-CA5570284241_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-06 | [Les marais salants de Gozo, Malte (© Marius Roman/Getty Images)](https://cn.bing.com/th?id=OHR.MaltaSalt_FR-CA8173669385_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-05 | [Le milan royal sous la neige (© Carl Mckie/500px/Getty Images)](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_FR-CA8000079517_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

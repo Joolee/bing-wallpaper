@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-07 | [Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)](https://cn.bing.com/th?id=OHR.GiauPass_EN-CA8083583270_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-06 | [Salt evaporation ponds on the island of Gozo, Malta (© Marius Roman/Getty Images)](https://cn.bing.com/th?id=OHR.MaltaSalt_EN-CA7894640375_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-05 | [Red kite in snow (© Carl Mckie/500px/Getty Images)](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_EN-CA7577460062_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
