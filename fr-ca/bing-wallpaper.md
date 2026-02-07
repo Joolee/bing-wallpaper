@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-08 | [Salar d'Uyuni, Bolivie (© Abstract Aerial Art/Getty Images)](https://cn.bing.com/th?id=OHR.SalarUyuni_FR-CA1655211138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-07 | [Le Ra Gusela, col de Giau Pass, près de Cortina d'Ampezzo, Italie (© Tomasz Podolski/Getty Images)](https://cn.bing.com/th?id=OHR.GiauPass_FR-CA5570284241_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-06 | [Les marais salants de Gozo, Malte (© Marius Roman/Getty Images)](https://cn.bing.com/th?id=OHR.MaltaSalt_FR-CA8173669385_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
