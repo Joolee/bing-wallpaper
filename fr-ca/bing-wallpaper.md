@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-12 | [Salines de Badwater, Parc national de la Vallée de la Mort, Californie, États-Unis (© Jim Patterson/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BadwaterFlats_FR-CA7904009299_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-11 | [Es Vedrà et Es Vedranell, Ibiza, Espagne (© L. Apolli/Getty Images)](https://cn.bing.com/th?id=OHR.IbizaIslets_FR-CA6842489211_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-10 | [Chat-léopard de l’Amour, Russie (© Valeriy Maleev/naturepl.com)](https://cn.bing.com/th?id=OHR.LeopardCat_FR-CA5794577036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
