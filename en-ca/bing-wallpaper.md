@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-13 | [Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-CA8905313156_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-12 | [Salt flats in Badwater Basin, Death Valley National Park, California, United States (© Jim Patterson/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BadwaterFlats_EN-CA8544222126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-11 | [Islets of Es Vedrà and Es Vedranell, Ibiza, Spain (© L. Apolli/Getty Images)](https://cn.bing.com/th?id=OHR.IbizaIslets_EN-CA9725218583_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
