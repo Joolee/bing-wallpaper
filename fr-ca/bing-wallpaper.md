@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-14 | [Troisième pont de l’amitié lao-thaïlandaise reliant le Laos et la Thaïlande (© chaiyut samsuk/Getty Images)](https://cn.bing.com/th?id=OHR.FriendshipBridge_FR-CA7118708178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-13 | [Fou à pieds bleus, Îles Galapagos, Équateur (© Karine Aigner/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.DarwinBooby_FR-CA5256691798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-12 | [Salines de Badwater, Parc national de la Vallée de la Mort, Californie, États-Unis (© Jim Patterson/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BadwaterFlats_FR-CA7904009299_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
