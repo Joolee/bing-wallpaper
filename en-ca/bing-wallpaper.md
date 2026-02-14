@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-15 | [Bleeding hearts (© Dorene Hookey/Cavan Images)](https://cn.bing.com/th?id=OHR.ValentineHearts_EN-CA0194351855_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-14 | [Third Thai-Lao Friendship Bridge connecting Laos and Thailand (© chaiyut samsuk/Getty Images)](https://cn.bing.com/th?id=OHR.FriendshipBridge_EN-CA9180302051_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-13 | [Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.DarwinBooby_EN-CA8905313156_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
