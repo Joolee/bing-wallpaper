@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-16 | [Scenic view of lake by snowcapped mountains in Banff, Alberta, Canada (�� Herbert Rong/Getty Images)](https://cn.bing.com/th?id=OHR.BanffWinter_EN-IN9640409909_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-16 | [Scenic view of lake by snowcapped mountains in Banff, Alberta, Canada (© Herbert Rong/Getty Images)](https://cn.bing.com/th?id=OHR.BanffWinter_EN-IN9640409909_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-15 | [Statue of Shiva at Murudeshwara Temple, Uttara Kannada, Karnataka (© Amith Nag Photography/Moment/Getty Image)](https://cn.bing.com/th?id=OHR.MahaShivaratri2026_EN-IN9432301075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
