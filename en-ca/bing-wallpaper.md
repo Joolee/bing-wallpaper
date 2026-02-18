@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-19 | [Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-CA1440158754_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-18 | [Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-CA1106555722_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-17 | [Scenic view of lake by snowcapped mountains in Banff, Alberta (© Herbert Rong/Getty Images)](https://cn.bing.com/th?id=OHR.BanffWinter_EN-CA0779166638_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
