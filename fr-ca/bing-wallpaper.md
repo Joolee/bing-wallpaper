@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-20 | [Dragon's Eye, formation rocheuse sur la plage d’Uttakleiv, Norvège (© reisegraf/Getty Images)](https://cn.bing.com/th?id=OHR.DragonsEyeRock_FR-CA6892198253_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-19 | [Chevaux de Przewalski (© Nemyrivskyi Viacheslav/Getty Images)](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_FR-CA6421034547_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-18 | [Des lanternes rouges pour fêter le Nouvel An chinois (© Gins Wang/Getty Images)](https://cn.bing.com/th?id=OHR.NewYearLantern_FR-CA8901839113_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
