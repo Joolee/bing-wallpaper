@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-21 | [La chute d’Horsetail, Parc national de Yosemite, Californie, États-Unis (© Jorge Villalba/Getty Images)](https://cn.bing.com/th?id=OHR.AdamsFirefall_FR-CA5596610084_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-20 | [Dragon's Eye, formation rocheuse sur la plage d’Uttakleiv, Norvège (© reisegraf/Getty Images)](https://cn.bing.com/th?id=OHR.DragonsEyeRock_FR-CA6892198253_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-19 | [Chevaux de Przewalski (© Nemyrivskyi Viacheslav/Getty Images)](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_FR-CA6421034547_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
