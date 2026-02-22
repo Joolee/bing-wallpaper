@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-23 | [Mam Tor, Derbyshire, Angleterre (© john finney photography/Getty Images)](https://cn.bing.com/th?id=OHR.MamTorSunrise_FR-CA2386301779_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-22 | [Un renard sous la neige, Parc national de Grand Teton, Wyoming, États-Unis (© Radomir Jakubowski/naturepl.com)](https://cn.bing.com/th?id=OHR.TetonFox_FR-CA0672225229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-21 | [La chute d’Horsetail, Parc national de Yosemite, Californie, États-Unis (© Jorge Villalba/Getty Images)](https://cn.bing.com/th?id=OHR.AdamsFirefall_FR-CA5596610084_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
