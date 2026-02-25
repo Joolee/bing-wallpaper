@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-25 | [Ice cave in the Mendenhall Glacier, Alaska, United States (© Designpics/Adobe Stock)](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-IN1317214650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-24 | [Water lilies at Grand Cenote, Tulum, Mexico (© Christian Vizl/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.TulumLilies_EN-IN0356190937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-23 | [Great white egret, Upper Bavaria, Germany (© Konrad Wothe/naturepl.com)](https://cn.bing.com/th?id=OHR.BavariaEgret_EN-IN0132576693_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
