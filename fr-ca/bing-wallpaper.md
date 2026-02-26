@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-27 | [Le Grand Canyon et le fleuve Colorado, Arizona, États-Unis (© Matt Anderson Photography/Getty Images)](https://cn.bing.com/th?id=OHR.GrandSunset_FR-CA2260883766_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-26 | [Grotte de glace du Glacier Mendenhall, Alaska, États-Unis (© Designpics/Adobe Stock)](https://cn.bing.com/th?id=OHR.MendenhallCave_FR-CA6623430903_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-25 | [Des nénuphars au Gran Cenote, Tulum, Mexique (© Christian Vizl/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.TulumLilies_FR-CA4335580638_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
