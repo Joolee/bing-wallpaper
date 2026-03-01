@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-02 | [Harfang des neiges près des Rocheuses Canadiennes (© www.harshadventure.com/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.OwlonGuard_FR-CA3024478389_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-01 | [Les chutes d’Olo'upena, Île de Moloka'i, Hawaï, États-Unis (© Andrew Aylett/Getty Images)](https://cn.bing.com/th?id=OHR.OloupenaFalls_FR-CA6440026394_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-28 | [Ours polaire sur la banquise, Refuge Faunique National de l’Arctique, Alaska, États-Unis (© Steven Kazlowski/naturepl.com)](https://cn.bing.com/th?id=OHR.ArcitcCub_FR-CA2390594939_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
