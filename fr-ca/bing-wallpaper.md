@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-03 | [Bateaux à longue queue sur le port de Ko Samui, Thaïlande (© Foto2rich/Shutterstock)](https://cn.bing.com/th?id=OHR.SamuiThailand_FR-CA4699413933_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-02 | [Harfang des neiges près des Rocheuses Canadiennes (© www.harshadventure.com/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.OwlonGuard_FR-CA3024478389_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-01 | [Les chutes d’Olo'upena, Île de Moloka'i, Hawaï, États-Unis (© Andrew Aylett/Getty Images)](https://cn.bing.com/th?id=OHR.OloupenaFalls_FR-CA6440026394_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

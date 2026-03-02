@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-03 | [Harbour and longtail boats at Ko Samui, Thailand (© Foto2rich/Shutterstock)](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-CA7437752481_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-02 | [Snowy owl near the Canadian Rockies (© www.harshadventure.com/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.OwlonGuard_EN-CA7496212614_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-01 | [Olo'upena Falls, island of Moloka'i, Hawaii, United States (© Andrew Aylett/Getty Images)](https://cn.bing.com/th?id=OHR.OloupenaFalls_EN-CA7570794029_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
