@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-04 | [Purple crocus flowers, Seven Rila Lakes, Bulgaria (© Maya Karkalicheva/Getty Images)](https://cn.bing.com/th?id=OHR.RilaCrocuses_EN-IN4128659959_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-03 | [Group of people playing Holi in Rajasthan (© Bartosz Hadyniak/Getty Images)](https://cn.bing.com/th?id=OHR.RJINHoli_EN-IN3889528618_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-02 | [Harbour and longtail boats at Ko Samui, Thailand (© Foto2rich/Shutterstock)](https://cn.bing.com/th?id=OHR.SamuiThailand_EN-IN3365057926_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
