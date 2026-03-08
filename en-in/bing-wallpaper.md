@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-08 | [Akbar's tomb, Agra, Uttar Pradesh (© zeelichsheng/Shutterstock)](https://cn.bing.com/th?id=OHR.AkbarAgra_EN-IN0901638109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-07 | [Humpback whales, Monterey Bay, California, United States (© Kiliii Fish/Cavan Images)](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-IN8212450706_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-06 | [The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)](https://cn.bing.com/th?id=OHR.WaveDenmark_EN-IN9929501446_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
