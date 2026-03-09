@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-10 | [Phoque gris endormi sur la plage, Îles Orcades, Écosse (© Andrew Mason/Minden Pictures)](https://cn.bing.com/th?id=OHR.NappingSeal_FR-CA6094353659_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-09 | [Horloge astronomique, Mairie d’Ulm, Allemagne (© Tomekbudujedomek/Getty Images)](https://cn.bing.com/th?id=OHR.UlmClock_FR-CA5955039124_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-08 | [Lever du soleil sur le Brocken, Parc national du Harz, Allemagne (© imageBROKER/AVTG/Getty Images)](https://cn.bing.com/th?id=OHR.BrockenSunrise_FR-CA1519030344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
