@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-10 | [Geothermal blue pool Bláhver at Hveravellir, Iceland (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.SpringIceland_EN-IN2248255262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-09 | [Grey seal sleeping on the beach, Orkney Islands, Scotland (© Andrew Mason/Minden Pictures)](https://cn.bing.com/th?id=OHR.NappingSeal_EN-IN2066436514_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-08 | [Akbar's tomb, Agra, Uttar Pradesh (© zeelichsheng/Shutterstock)](https://cn.bing.com/th?id=OHR.AkbarAgra_EN-IN0901638109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
