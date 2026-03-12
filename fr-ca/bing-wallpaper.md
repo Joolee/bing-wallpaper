@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-13 | [Caurale soleil faisant sa parade nuptiale, Équateur (© Andy Rouse/naturepl.com)](https://cn.bing.com/th?id=OHR.SunbitternEcuador_FR-CA6588923031_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-12 | [Pêchers en fleur, Cieza, Murcie, Espagne (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.PeachBloom_FR-CA6504909284_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-11 | [Source chaude de Bláhver, Hveravellir, Islande (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.SpringIceland_FR-CA6243669045_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
