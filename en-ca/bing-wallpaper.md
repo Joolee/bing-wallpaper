@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-16 | [Pacific Rim National Park Reserve, Vancouver Island (© EmilyNorton/Getty Images)](https://cn.bing.com/th?id=OHR.PacificRimNP_EN-CA7886674430_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-15 | [Lanyon Quoit, a Neolithic dolmen in Cornwall, England (© Helen Hotson/Alamy)](https://cn.bing.com/th?id=OHR.CornwallDolmen_EN-CA7041540991_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-14 | [Vaults of the Church of Notre Dame de Bon-Port, Les Sables-d'Olonne, France (© Helmut Meyer zur Capellen/Alamy)](https://cn.bing.com/th?id=OHR.VendeeVaults_EN-CA6633656389_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
