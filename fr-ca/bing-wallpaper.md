@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-17 | [Aurores boréales sur Spirit Island, Lac Maligne, Parc national de Jasper, Alberta (© Mumemories/istock/Getty Images)](https://cn.bing.com/th?id=OHR.AuroraIsland_FR-CA8140041346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-16 | [Réserve de parc national Pacific Rim, Île de Vancouver, Canada (© EmilyNorton/Getty Images)](https://cn.bing.com/th?id=OHR.PacificRimNP_FR-CA0003865567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-15 | [Lanyon Quoit, dolmen néolithique à Cornwall, Angleterre (© Helen Hotson/Alamy)](https://cn.bing.com/th?id=OHR.CornwallDolmen_FR-CA7428188681_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

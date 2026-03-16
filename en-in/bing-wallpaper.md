@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-16 | [Giant panda eating bamboo, China (© Entwicklungsknecht/Getty Images)](https://cn.bing.com/th?id=OHR.PandaForest_EN-IN1900855233_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-15 | [Pacific Rim National Park Reserve, Vancouver Island, Canada (© EmilyNorton/Getty Images)](https://cn.bing.com/th?id=OHR.PacificRimNP_EN-IN3208253488_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-14 | [Lanyon Quoit, a Neolithic dolmen in Cornwall, England (© Helen Hotson/Alamy)](https://cn.bing.com/th?id=OHR.CornwallDolmen_EN-IN3037297549_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
