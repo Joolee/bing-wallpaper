@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-19 | [Cerisiers en fleur à Tom McCall Waterfront Park, Portland, États-Unis (© Eric Vogt/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.PortlandBlossoms_FR-CA0444683817_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-18 | [Grianan d’Aileach, fort circulaire, Donegal, Irlande (© Lukassek/Getty Images)](https://cn.bing.com/th?id=OHR.DonegalFort_FR-CA8544194956_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-17 | [Aurores boréales sur Spirit Island, Lac Maligne, Parc national de Jasper, Alberta (© Mumemories/istock/Getty Images)](https://cn.bing.com/th?id=OHR.AuroraIsland_FR-CA8140041346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
