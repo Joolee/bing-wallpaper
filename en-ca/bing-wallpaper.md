@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-20 | [Short-beaked echidna, Adelaide Hills, Australia (© Etienne Littlefair/naturepl.com)](https://cn.bing.com/th?id=OHR.EchidnaAustralia_EN-CA1280925480_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-19 | [Cherry blossoms at Tom McCall Waterfront Park, Portland, Oregon, United States (© Eric Vogt/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.PortlandBlossoms_EN-CA9305833993_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-18 | [Grianan of Aileach ring fort, Donegal, Ireland (© Lukassek/Getty Images)](https://cn.bing.com/th?id=OHR.DonegalFort_EN-CA9009549230_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
