@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-27 | [Pont suspendu de Logan Creek, Sentier de la Côte-Ouest (© Tandem Stock/Adobe Stock)](https://cn.bing.com/th?id=OHR.LoganCreek_FR-CA0824084585_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-26 | [Pins se reflétant sur l’étang Forgetmenot, Kananaskis Country, Alberta (© chinaface/Getty images)](https://cn.bing.com/th?id=OHR.AlbertaSnowMts_FR-CA5655798971_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-25 | [Cerisiers en fleurs au jardin des cerisiers du Lac de l’Est, Wuhan, Chine (© Zhang Qiao/VCG/Getty Images)](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_FR-CA6126739179_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
