@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-28 | [Radio City Music Hall, New York, États-Unis (© Clarence Holmes Photography/Alamy)](https://cn.bing.com/th?id=OHR.RadioCityHall_FR-CA9939370830_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-27 | [Pont suspendu de Logan Creek, Sentier de la Côte-Ouest (© Tandem Stock/Adobe Stock)](https://cn.bing.com/th?id=OHR.LoganCreek_FR-CA0824084585_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-26 | [Pins se reflétant sur l’étang Forgetmenot, Kananaskis Country, Alberta (© chinaface/Getty images)](https://cn.bing.com/th?id=OHR.AlbertaSnowMts_FR-CA5655798971_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
