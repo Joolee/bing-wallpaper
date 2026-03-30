@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-31 | [Grues demoiselles, Inde (© Axel Gomille/Nature Picture Library)](https://cn.bing.com/th?id=OHR.IndiaCranes_FR-CA6819401498_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-30 | [Phare de Peggy’s Cove, Nouvelle-Écosse (© Prashanth Bala/Shutterstock)](https://cn.bing.com/th?id=OHR.PeggysLighthouse_FR-CA6616852205_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-29 | [Bufle d’Afrique, Cratère du Ngorongoro, Tanzanie (© jesuss8/500px/Getty Images)](https://cn.bing.com/th?id=OHR.CapeBuffalo_FR-CA6282464559_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
