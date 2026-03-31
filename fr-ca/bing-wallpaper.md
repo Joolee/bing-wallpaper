@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-01 | [Grotte du Paradis, Parc national de Phong Nha–Ke Bang, Vietnam (© Pakawat Thongcharoen/Getty Images)](https://cn.bing.com/th?id=OHR.ParadiseCave_FR-CA3844068535_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-31 | [Grues demoiselles, Inde (© Axel Gomille/Nature Picture Library)](https://cn.bing.com/th?id=OHR.IndiaCranes_FR-CA6819401498_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-30 | [Phare de Peggy’s Cove, Nouvelle-Écosse (© Prashanth Bala/Shutterstock)](https://cn.bing.com/th?id=OHR.PeggysLighthouse_FR-CA6616852205_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
