@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-03 | [Fleurs sauvages, Vallée Centrale, Californie, États-Unis (© Jeff Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.WildflowerValley_FR-CA7932282806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-02 | [Rainette japonaise au cœur d’une fleur de liseron rose (© Tetsuya Tanooka/Getty Images)](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_FR-CA3742504467_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-01 | [Grotte du Paradis, Parc national de Phong Nha–Ke Bang, Vietnam (© Pakawat Thongcharoen/Getty Images)](https://cn.bing.com/th?id=OHR.ParadiseCave_FR-CA3844068535_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
