@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-04 | [Armbrug bridge, Amsterdam, Netherlands (© Alexander Spatari/Getty Images)](https://cn.bing.com/th?id=OHR.ArmbrugBridge_EN-CA6719297675_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-03 | [Wildflower bloom, Central Valley, California, United States (© Jeff Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.WildflowerValley_EN-CA5205263100_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-02 | [Japanese tree frog in a pink morning glory (© Tetsuya Tanooka/Getty Images)](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_EN-CA4832337394_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
