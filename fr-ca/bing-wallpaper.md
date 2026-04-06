@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-07 | [Œufs de Pâques décorés à la main, Vilnius, Lituanie (© maximkabb/Getty Images)](https://cn.bing.com/th?id=OHR.LithuaniaEggs_FR-CA0552544528_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-06 | [Château d’Hirosaki et cerisiers en fleur, Japon (© Glenn Waters/Getty Images)](https://cn.bing.com/th?id=OHR.CastleBlossoms_FR-CA7451549513_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-05 | [Tétras lyres mâles lors d’une parade nuptiale, Estonie (© Sven Zacek/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GrouseGuff_FR-CA7421141421_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
