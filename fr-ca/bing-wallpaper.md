@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-08 | [Castor, Allemagne (© Andyworks/Getty Images)](https://cn.bing.com/th?id=OHR.BeaverPortrait_FR-CA0843155058_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-07 | [Œufs de Pâques décorés à la main, Vilnius, Lituanie (© maximkabb/Getty Images)](https://cn.bing.com/th?id=OHR.LithuaniaEggs_FR-CA0552544528_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-06 | [Château d’Hirosaki et cerisiers en fleur, Japon (© Glenn Waters/Getty Images)](https://cn.bing.com/th?id=OHR.CastleBlossoms_FR-CA7451549513_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
