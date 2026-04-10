@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-11 | [Two young red foxes at Karula National Park, Estonia (© Sven Zacek/Nature Picture Library)](https://cn.bing.com/th?id=OHR.FoxSiblings_EN-CA3037431100_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-10 | [Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales (© Guy Edwardes/Nature Picture Library)](https://cn.bing.com/th?id=OHR.WalesWaterfall_EN-CA3721163982_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-09 | [Seattle, Washington, United States (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SeattleSunrise_EN-CA2571185847_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
