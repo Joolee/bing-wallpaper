@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-12 | [Une voûte de fleurs de cerisier dans le parc Stanley, Vancouver (© WendyNordvikCarr/Getty Images)](https://cn.bing.com/th?id=OHR.StanleySakura_FR-CA2793920425_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-11 | [Deux renardeaux dans le parc national de Karula, Estonie (© Sven Zacek/Nature Picture Library)](https://cn.bing.com/th?id=OHR.FoxSiblings_FR-CA8605304902_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-10 | [Cascade de Sgwd yr Eira, Parc national des Bannau Brycheiniog, Pays de Galles (© Guy Edwardes/Nature Picture Library)](https://cn.bing.com/th?id=OHR.WalesWaterfall_FR-CA8191493811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
