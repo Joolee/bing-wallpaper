@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-13 | [アンザ・ボレゴ砂漠州立公園, 米国 カリフォルニア州 (© Kevin Key/Slworking)](https://cn.bing.com/th?id=OHR.BorregoStars_JA-JP7872026496_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-12 | [光の筋となる都市の夜景, 国際宇宙ステーション (© NASA)](https://cn.bing.com/th?id=OHR.SpaceTrails_JA-JP7486143829_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-12 | [光の筋となる都市の夜��, 国際宇宙ステーション (© NASA)](https://cn.bing.com/th?id=OHR.SpaceTrails_JA-JP7486143829_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
