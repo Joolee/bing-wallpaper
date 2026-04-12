@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-13 | [City lights streak below, taken from the International Space Station (© NASA)](https://cn.bing.com/th?id=OHR.SpaceTrails_EN-CA4327583525_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-12 | [A canopy of cherry blossoms in Stanley Park, Vancouver (© WendyNordvikCarr/Getty Images)](https://cn.bing.com/th?id=OHR.StanleySakura_EN-CA3455290957_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-11 | [Two young red foxes at Karula National Park, Estonia (© Sven Zacek/Nature Picture Library)](https://cn.bing.com/th?id=OHR.FoxSiblings_EN-CA3037431100_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
