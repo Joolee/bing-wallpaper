@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-14 | [Ambedkar Memorial Park, Lucknow, Uttar Pradesh (© Varun Kumar Tiwari/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.AmbedkarJayanti2026_EN-IN3641683791_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-13 | [Milky Way over Anza-Borrego Desert State Park, California, United States (© Kevin Key/Slworking)/Getty Images)](https://cn.bing.com/th?id=OHR.BorregoStars_EN-IN2846815950_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-12 | [City lights streak below, taken from the International Space Station (© NASA)](https://cn.bing.com/th?id=OHR.SpaceTrails_EN-IN2633640541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
