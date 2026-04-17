@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-18 | [Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-CA2731028083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-17 | [Blooming lupines in Newfoundland (© Nature, Parks/Outdoor/Shutterstock)](https://cn.bing.com/th?id=OHR.Wildflowerbloom_EN-CA6661555631_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-16 | [The Carrières des Lumières exhibit of Vincent van Gogh, Les Baux-de-Provence, France (© Patrick Aventurier/Getty Images)](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-CA4117156978_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

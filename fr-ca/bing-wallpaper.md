@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-18 | [Femelle renard volant à tête grise portant son petit, Yarra Bend Park, Australie (© Doug Gimesy/Nature Picture Library)](https://cn.bing.com/th?id=OHR.FlyingFoxMom_FR-CA4810693177_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-17 | [Lupins en fleur à Terre-Neuve (© Nature, Parks/Outdoor/Shutterstock)](https://cn.bing.com/th?id=OHR.Wildflowerbloom_FR-CA6123772633_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-16 | [Exposition immersive Van Gogh aux Carrières des Lumières, Les Baux-de-Provence, France (© Patrick Aventurier/Getty Images)](https://cn.bing.com/th?id=OHR.VanGoghFields_FR-CA6262463456_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
