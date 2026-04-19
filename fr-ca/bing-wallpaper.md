@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-20 | [Plage du Miroir, Trancoso, Bahia, Brésil (© Marcelo Nacinovic/Getty Images)](https://cn.bing.com/th?id=OHR.TranBA_FR-CA2623608746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-19 | [Carrières de moaïs, Rano Raraku, Île de Pâques, Chili (© Gavin Hellier/Alamy)](https://cn.bing.com/th?id=OHR.MaoiStatues_FR-CA1347038100_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-18 | [Femelle renard volant à tête grise portant son petit, Yarra Bend Park, Australie (© Doug Gimesy/Nature Picture Library)](https://cn.bing.com/th?id=OHR.FlyingFoxMom_FR-CA4810693177_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

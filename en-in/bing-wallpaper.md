@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-19 | [Spiti Valley, Himachal Pradesh (© Rahul Wedpathak/500px/Getty Images)](https://cn.bing.com/th?id=OHR.SpitiValley2026_EN-IN0228621600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-18 | [Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-IN8684829616_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-17 | [Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-IN8520360814_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
