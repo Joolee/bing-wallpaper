@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-21 | [Seaux à sève suspendus aux érables, utilisés pour la fabrication de sirop d’érable (© capecodphoto/Getty Images)](https://cn.bing.com/th?id=OHR.MapleExtraction_FR-CA2422380458_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-20 | [Plage du Miroir, Trancoso, Bahia, Brésil (© Marcelo Nacinovic/Getty Images)](https://cn.bing.com/th?id=OHR.TranBA_FR-CA2623608746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-19 | [Carrières de moaïs, Rano Raraku, Île de Pâques, Chili (© Gavin Hellier/Alamy)](https://cn.bing.com/th?id=OHR.MaoiStatues_FR-CA1347038100_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

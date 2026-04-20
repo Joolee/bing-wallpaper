@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-20 | [Canyonlands National Park, Moab, Utah, United States (© Jason Hatfield/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SunsetKiva_EN-IN0473512523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-19 | [Spiti Valley, Himachal Pradesh (© Rahul Wedpathak/500px/Getty Images)](https://cn.bing.com/th?id=OHR.SpitiValley2026_EN-IN0228621600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-18 | [Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-IN8684829616_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

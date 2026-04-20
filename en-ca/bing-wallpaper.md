@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-21 | [Buckets on maple trees collecting sap for maple syrup (© capecodphoto/Getty Images)](https://cn.bing.com/th?id=OHR.MapleExtraction_EN-CA4012556624_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-20 | [Mirror Beach, Porto Seguro, Bahia, Brazil (© Marcelo Nacinovic/Getty Images)](https://cn.bing.com/th?id=OHR.TranBA_EN-CA3645190031_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-19 | [Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-CA3351921457_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
