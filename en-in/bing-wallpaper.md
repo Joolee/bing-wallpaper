@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-21 | [European hedgehog, France (© Klein & Hubert/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SpringHedgehog_EN-IN0774143305_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-20 | [Canyonlands National Park, Moab, Utah, United States (© Jason Hatfield/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SunsetKiva_EN-IN0473512523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-19 | [Spiti Valley, Himachal Pradesh (© Rahul Wedpathak/500px/Getty Images)](https://cn.bing.com/th?id=OHR.SpitiValley2026_EN-IN0228621600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

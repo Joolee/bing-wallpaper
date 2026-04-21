@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-22 | [Hérisson d’Europe, France (© Klein & Hubert/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SpringHedgehog_FR-CA8968168576_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-21 | [Seaux à sève suspendus aux érables, utilisés pour la fabrication de sirop d’érable (© capecodphoto/Getty Images)](https://cn.bing.com/th?id=OHR.MapleExtraction_FR-CA2422380458_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-20 | [Plage du Miroir, Trancoso, Bahia, Brésil (© Marcelo Nacinovic/Getty Images)](https://cn.bing.com/th?id=OHR.TranBA_FR-CA2623608746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
