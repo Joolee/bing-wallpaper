@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-26 | [Manchots des Galápagos, Îles Galápagos, Équateur (© Henley Spiers/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GalapagosPenguins_FR-CA4365083934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-25 | [Pins à encens et palmiers de Floride, Parc national des Everglades, Floride, États-Unis (© Mary Liz Austin/Alamy)](https://cn.bing.com/th?id=OHR.SlashPine_FR-CA2267415174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-24 | [Cottage d’Anne Hathaway, Stratford-upon-Avon, Angleterre (© David Steele/Shutterstock)](https://cn.bing.com/th?id=OHR.HathawayCottage_FR-CA3516650113_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
