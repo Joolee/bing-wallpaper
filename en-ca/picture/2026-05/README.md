@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2026-05)
-![](https://cn.bing.com/th?id=OHR.DutchTulips_EN-CA7547956552_UHD.jpg&w=1000)Today: [Grape hyacinths and tulips, Keukenhof Gardens, Lisse, Netherlands (© Martin Ruegner/Getty Images)](https://cn.bing.com/th?id=OHR.DutchTulips_EN-CA7547956552_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.TwrMawrLighthouse2026_EN-CA5457397043_UHD.jpg&w=1000)Today: [Tŵr Mawr Lighthouse, Ynys Llanddwyn, Anglesey, Wales (© Lukas Bischoff/Getty Images)](https://cn.bing.com/th?id=OHR.TwrMawrLighthouse2026_EN-CA5457397043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
-|![](https://cn.bing.com/th?id=OHR.DutchTulips_EN-CA7547956552_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-05-01 [download 4k](https://cn.bing.com/th?id=OHR.DutchTulips_EN-CA7547956552_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+|![](https://cn.bing.com/th?id=OHR.TwrMawrLighthouse2026_EN-CA5457397043_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-05-02 [download 4k](https://cn.bing.com/th?id=OHR.TwrMawrLighthouse2026_EN-CA5457397043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.DutchTulips_EN-CA7547956552_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-05-01 [download 4k](https://cn.bing.com/th?id=OHR.DutchTulips_EN-CA7547956552_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
