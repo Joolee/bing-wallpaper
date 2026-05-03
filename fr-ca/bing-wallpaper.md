@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-04 | [Un léopard endormi dans un arbre de la savane, Réserve nationale du Masai Mara, Kenya (© Klein & Hubert/Nature Picture Library)](https://cn.bing.com/th?id=OHR.MasaiLeopard_FR-CA5942726256_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-03 | [Petit lac et marais dans le parc national Jasper, en Alberta (© Don White/Getty Images)](https://cn.bing.com/th?id=OHR.GreenJasper_FR-CA0598289520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-02 | [Phare de Tŵr Mawr, Ynys Llanddwyn, Anglesey, Pays de Galles (© Lukas Bischoff/Getty Images)](https://cn.bing.com/th?id=OHR.TwrMawrLighthouse2026_FR-CA0308784952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
