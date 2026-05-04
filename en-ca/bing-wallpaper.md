@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-05 | [Ksar Ouled Soltane, Tataouine district in southern Tunisia (© Dark_Eni/Getty Images Plus)](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_EN-CA5863757495_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-04 | [Leopard sleeping in a tree in the savannah, Masai Mara National Reserve, Kenya (© Klein & Hubert/Nature Picture Library)](https://cn.bing.com/th?id=OHR.MasaiLeopard_EN-CA1789008589_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-03 | [Small lake and marsh in Jasper National Park in Alberta (© Don White/Getty Images)](https://cn.bing.com/th?id=OHR.GreenJasper_EN-CA5522153954_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
