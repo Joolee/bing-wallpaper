@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-06 | [Orignal dans un sous-bois, Québec (© pchoui/Getty Images)](https://cn.bing.com/th?id=OHR.BullQuebec_FR-CA6260493831_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-05 | [Ksar Ouled Soltane, Tataouine, Tunisie (© Dark_Eni/Getty Images Plus)](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_FR-CA6095095804_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-04 | [Un léopard endormi dans un arbre de la savane, Réserve nationale du Masai Mara, Kenya (© Klein & Hubert/Nature Picture Library)](https://cn.bing.com/th?id=OHR.MasaiLeopard_FR-CA5942726256_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
