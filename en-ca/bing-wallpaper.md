@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-09 | [Tulips and cherry blossoms at the Rideau Canal, Ottawa, Ontario (© J Duquette/Getty Images)](https://cn.bing.com/th?id=OHR.TulipFestOT_EN-CA8431484438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-08 | [Kofa National Wildlife Refuge, Arizona, United States (© Denis Tangney Jr/Getty Images)](https://cn.bing.com/th?id=OHR.Kofa_EN-CA1760783023_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-07 | [Thunderstorm above the plains, Bulgaria (© Revolu7ion93/Getty Images)](https://cn.bing.com/th?id=OHR.BulgariaPlains_EN-CA6379116198_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
