@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-11 | [Ourse polaire jouant avec ses oursons, Parc national Wapusk, Manitoba (© Hao Jiang/Getty Images)](https://cn.bing.com/th?id=OHR.MotherCub_FR-CA6952526998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-10 | [Chutes de Skradinski Buk, Parc national de Krka, Croatie (© Amazing Aerial Agency/Adobe Stock)](https://cn.bing.com/th?id=OHR.SkradinskiBuk_FR-CA1338552126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-09 | [Tulipes et cerisiers en fleurs sur les rives du canal Rideau, Ottawa, Ontario (© J Duquette/Getty Images)](https://cn.bing.com/th?id=OHR.TulipFestOT_FR-CA6683059104_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

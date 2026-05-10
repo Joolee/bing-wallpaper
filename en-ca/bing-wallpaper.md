@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-11 | [Polar bear mother and cubs playing in Wapusk National Park, Manitoba (© Hao Jiang/Getty Images)](https://cn.bing.com/th?id=OHR.MotherCub_EN-CA9121944440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-10 | [Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)](https://cn.bing.com/th?id=OHR.SkradinskiBuk_EN-CA8816657726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-09 | [Tulips and cherry blossoms at the Rideau Canal, Ottawa, Ontario (© J Duquette/Getty Images)](https://cn.bing.com/th?id=OHR.TulipFestOT_EN-CA8431484438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
