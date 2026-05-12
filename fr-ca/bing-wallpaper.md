@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-13 | [Macareux moines, Pays de Galles (© FLPA/Alamy)](https://cn.bing.com/th?id=OHR.Fratercula_FR-CA7209998193_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-12 | [Vue aérienne de la Grande Barrière de Corail, Queensland, Australie (© Francesco Riccardo Iacomino/Getty Images)](https://cn.bing.com/th?id=OHR.QueenslandReef_FR-CA1633759764_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-11 | [Ourse polaire jouant avec ses oursons, Parc national Wapusk, Manitoba (© Hao Jiang/Getty Images)](https://cn.bing.com/th?id=OHR.MotherCub_FR-CA6952526998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
