@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-14 | [Medieval town of Pitigliano, Tuscany, Italy (© bluejayphoto/Getty Images Plus)](https://cn.bing.com/th?id=OHR.Pitigliano_EN-IN6839021414_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-13 | [Arch and Milky Way, Alabama Hills, Sierra Nevada, California, United States (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-IN6543590373_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-12 | [Atlantic puffins, Wales (© FLPA/Alamy)](https://cn.bing.com/th?id=OHR.Fratercula_EN-IN6270767271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
