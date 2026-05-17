@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-18 | [Hawksbill Mountain, Parc national de Shenandoah, Virginie, États-Unis (© John Baggaley/Getty Images)](https://cn.bing.com/th?id=OHR.ShenandoahSunset_FR-CA3281673722_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-17 | [Parc d’État de Smith Rock, Oregon, États-Unis (© Alex Ratson/Getty Images)](https://cn.bing.com/th?id=OHR.SmithRockPark_FR-CA6286478118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-16 | [Famille de cachalots, Océan Indien (© Tony Wu/Nature Picture Library)](https://cn.bing.com/th?id=OHR.EndangeredWhales_FR-CA2546674025_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
