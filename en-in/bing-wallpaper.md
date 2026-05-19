@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-19 | [Formentor Lighthouse, Mallorca, Balearic Islands, Spain (© Allard Schager/Getty Images)](https://cn.bing.com/th?id=OHR.SpainLighthouse_EN-IN0100317723_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-18 | [Natural History Museum, London, England (© Colm Keating/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.MuseumLondon_EN-IN9734086718_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-17 | [Hawksbill Mountain in Shenandoah National Park, Virginia, USA (© John Baggaley/Getty Images)](https://cn.bing.com/th?id=OHR.ShenandoahSunset_EN-IN9525704190_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
