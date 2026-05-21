@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-22 | [Plantations de thé en terrasses, Sichuan, Chine (© lzf/Shutterstock)](https://cn.bing.com/th?id=OHR.SichuanTea_FR-CA7301559529_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-21 | [Bourdon, Worcester, Angleterre (© SimonEastwood87/Shutterstock)](https://cn.bing.com/th?id=OHR.BumbleBee_FR-CA3745675981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-20 | [Phare de Formentor, Majorque, Îles Baléares, Espagne (© Allard Schager/Getty Images)](https://cn.bing.com/th?id=OHR.SpainLighthouse_FR-CA3649228995_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
