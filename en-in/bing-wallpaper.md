@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-22 | [Kauehi Atoll, Tuamotu Archipelago, French Polynesia (© WaterFrame_dpr/Alamy)](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_EN-IN0930317309_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-21 | [Tea terraces in Sichuan Province, China (© lzf/Shutterstock)](https://cn.bing.com/th?id=OHR.SichuanTea_EN-IN0699009240_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-20 | [Bumble bee pollinating, Worcester, England (© SimonEastwood87/Shutterstock)](https://cn.bing.com/th?id=OHR.BumbleBee_EN-IN0298436204_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
