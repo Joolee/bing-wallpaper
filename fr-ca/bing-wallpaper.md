@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-24 | [Tortues et papillons (© Patrick Gallet/Getty Images)](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_FR-CA4454150798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-23 | [Kauehi, Archipel des Tuamotu, Polynésie française (© WaterFrame_dpr/Alamy)](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_FR-CA0897658074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-22 | [Plantations de thé en terrasses, Sichuan, Chine (© lzf/Shutterstock)](https://cn.bing.com/th?id=OHR.SichuanTea_FR-CA7301559529_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
