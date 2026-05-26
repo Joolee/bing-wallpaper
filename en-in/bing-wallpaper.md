@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-27 | [Sea otter, Kachemak Bay, Homer, Alaska, United States (© roclwyr/Getty Images)](https://cn.bing.com/th?id=OHR.OtterDay_EN-IN4331346367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-25 | [View over Jaipur from Hawa Mahal, Rajasthan (© byheaven/Getty Images)](https://cn.bing.com/th?id=OHR.HawaMahal2026_EN-IN3702170011_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-24 | [Tre Cime Nature Park, South Tyrol, Italy (© Adisorn Fineday Chutikunakorn/Getty Images)](https://cn.bing.com/th?id=OHR.DolomitesPark_EN-IN3505043244_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

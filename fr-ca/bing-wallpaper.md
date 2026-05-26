@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-27 | [Lupins en fleur, Californie du Nord, États-Unis (© Jeffrey Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LupineBloom_FR-CA1655481961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-26 | [Vue sur Jaipur depuis le Palais des Vents, Rajasthan, Inde (© byheaven/Getty Images)](https://cn.bing.com/th?id=OHR.HawaMahal2026_FR-CA5388607060_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-25 | [Cygne tuberculé sur un plan d’eau calme (© Don White/Getty Images)](https://cn.bing.com/th?id=OHR.MuteSwanGI_FR-CA1275165543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
