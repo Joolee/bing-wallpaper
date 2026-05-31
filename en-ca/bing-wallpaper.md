@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-01 | [Humber River winding through Boyd Conservation Area, Woodbridge, Vaughan, Ontario (© jimfeng/Getty Images)](https://cn.bing.com/th?id=OHR.HumberRiverTrails_EN-CA6657789473_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-31 | [Plains zebra foal in Etosha National Park, Namibia (© Sharon Heald/Nature Picture Library)](https://cn.bing.com/th?id=OHR.EquusQuagga_EN-CA6382180419_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-30 | [Mount Everest summit, Sagarmatha National Park, Nepal (© fotoVoyager/Getty Images)](https://cn.bing.com/th?id=OHR.SummitEverest_EN-CA4641976323_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
