@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-02 | [Palerme au crépuscule, Sicile, Italie (© Sean Pavone/Getty Images)](https://cn.bing.com/th?id=OHR.OlivaPalermo_FR-CA4763720725_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-01 | [Rivière Humber dans la zone de conservation Boyd, Woodbridge, Vaughan, Ontario (© jimfeng/Getty Images)](https://cn.bing.com/th?id=OHR.HumberRiverTrail_FR-CA4592084106_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-31 | [Zébreau dans le parc national d’Etosha, Namibie (© Sharon Heald/Nature Picture Library)](https://cn.bing.com/th?id=OHR.EquusQuagga_FR-CA5183876662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
