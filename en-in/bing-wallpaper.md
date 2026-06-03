@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-04 | [Snowy egret preening, central Florida, United States (© Donald M. Jones/Minden Pictures)](https://cn.bing.com/th?id=OHR.PreeningEgret_EN-IN3047678706_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-03 | [Cyclist in Bardenas Reales Natural Park and Biosphere Reserve, Navarra, Spain (© Artur Debat/Getty Images)](https://cn.bing.com/th?id=OHR.BardenasReales_EN-IN2901722353_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-02 | [Minarets of Charminar, Hyderabad, Telangana (© RAJARSHI SENGUPTA/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.TelanganaDay2026_EN-IN2729505086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
