@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-05 | [Aigrette neigeuse, Floride centrale, États-Unis (© Donald M. Jones/Minden Pictures)](https://cn.bing.com/th?id=OHR.PreeningEgret_FR-CA5399816974_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-04 | [Cycliste dans le parc naturel des Bardenas Reales, Navarre, Espagne (© Artur Debat/Getty Images)](https://cn.bing.com/th?id=OHR.BardenasReales_FR-CA5237684924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-03 | [Route nationale 315 traversant le lac Xitai Jinaier, Province du Qinghai, Chine (© Kaicheng Xu/Getty Images)](https://cn.bing.com/th?id=OHR.Qinghai_FR-CA8995705420_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
