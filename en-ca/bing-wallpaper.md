@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-08 | [Ruins of Dunseverick Castle, County Antrim, Northern Ireland (© Krzysztof Rogalski/Getty Images)](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_EN-CA2353386537_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-07 | [Natchez Trace Parkway, Tupelo, Mississippi, United States (© The best photo is earned/Getty Images Plus)](https://cn.bing.com/th?id=OHR.HikingNatchez_EN-CA4973547873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-06 | [View from Skierffe Mountain over the Rapadalen river delta, Sarek National Park, Laponia, Lapland, Sweden (© Robert Haasmann/Getty Images)](https://cn.bing.com/th?id=OHR.WedLapland_EN-CA4849438466_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
