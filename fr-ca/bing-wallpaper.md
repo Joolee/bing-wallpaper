@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-11 | [Lac de Hnausapollur, Réserve naturelle de Fjallabak, Landmannalaugar, Islande (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.Hnausapollur_FR-CA2826849352_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-10 | [Vernazza, Cinque Terre, Ligurie, Italie (© Kelly Cheng/Getty Images)](https://cn.bing.com/th?id=OHR.CTNPVernazza_FR-CA6747976525_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-09 | [Méduse crinière de lion (© Alexander Semenov Images/Shutterstock)](https://cn.bing.com/th?id=OHR.Cyanea_FR-CA6257844475_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
