@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-14 | [Mallard duck (© Philippe Paternolli/Getty Images)](https://cn.bing.com/th?id=OHR.DuckPond_EN-IN7848254317_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-13 | [Sunset in Badlands National Park, South Dakota, United States (© Troy Harrison/Getty Images)](https://cn.bing.com/th?id=OHR.BadSunset_EN-IN7356808062_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-12 | [European bee-eater in Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SpainBeeEater_EN-IN7232456385_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
