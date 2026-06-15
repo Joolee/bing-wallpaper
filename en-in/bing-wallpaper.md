@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-15 | [Great Smoky Mountains National Park, Tennessee, United States (© Mint Images/Getty Images)](https://cn.bing.com/th?id=OHR.ParkEstd_EN-IN7979223128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-14 | [Mallard duck (© Philippe Paternolli/Getty Images)](https://cn.bing.com/th?id=OHR.DuckPond_EN-IN7848254317_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-13 | [Sunset in Badlands National Park, South Dakota, United States (© Troy Harrison/Getty Images)](https://cn.bing.com/th?id=OHR.BadSunset_EN-IN7356808062_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
