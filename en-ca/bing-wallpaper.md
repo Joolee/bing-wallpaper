@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-17 | [Hawksbill sea turtle pair near Seven Mile Beach, Grand Cayman, Cayman Islands (© Alex Mustard/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SevenMileTurtle_EN-CA5750272834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-16 | [Great Smoky Mountains National Park, Tennessee, United States (© Mint Images/Getty Images)](https://cn.bing.com/th?id=OHR.ParkEstd_EN-CA5456833657_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-15 | [Mallard duck (© Philippe Paternolli/Getty Images)](https://cn.bing.com/th?id=OHR.DuckPond_EN-CA5165691235_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
