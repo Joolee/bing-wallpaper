@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-20 | [Phare de La Rocchetta, Piombino, Toscane, Italie (© StevanZZ/Getty Images)](https://cn.bing.com/th?id=OHR.IsolaElba_FR-CA6826330322_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-19 | [Vue aérienne des ruines de Sacsayhuamán, Cusco, Pérou (© Creative-Family/Getty Images Plus)](https://cn.bing.com/th?id=OHR.Saqsaywaman_FR-CA6074758013_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-18 | [Route de la Tremola sur le col du Saint-Gothard, Airolo, Suisse (© Sandro Bisaro/Getty Images)](https://cn.bing.com/th?id=OHR.TremolaRoad_FR-CA5218229801_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
