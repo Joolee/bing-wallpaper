@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-22 | [Red maple leaf, symbol of Canada (© namaki/Getty Images)](https://cn.bing.com/th?id=OHR.IndigenousMaple_EN-CA8176109531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-21 | [Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)](https://cn.bing.com/th?id=OHR.ArchedIceberg_EN-CA7836830010_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-20 | [La Rocchetta Lighthouse, Piombino, Italy (© StevanZZ/Getty Images)](https://cn.bing.com/th?id=OHR.IsolaElba_EN-CA8613795085_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

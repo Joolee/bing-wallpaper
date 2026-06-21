@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-22 | [La feuille d'érable rouge, symbole du Canada (© namaki/Getty Images)](https://cn.bing.com/th?id=OHR.IndigenousMaple_FR-CA1946850400_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-21 | [Arche naturelle sculptée dans un iceberg, Océan Antarctique (© Steven Kazlowski/Nature Picture Library)](https://cn.bing.com/th?id=OHR.ArchedIceberg_FR-CA6705356210_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-20 | [Phare de La Rocchetta, Piombino, Toscane, Italie (© StevanZZ/Getty Images)](https://cn.bing.com/th?id=OHR.IsolaElba_FR-CA6826330322_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
