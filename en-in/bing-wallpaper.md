@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-23 | [Mount Fuji on Honshu Island, Japan (© phutthiseth thongtae/Getty Images)](https://cn.bing.com/th?id=OHR.Fujisan_EN-IN2234581475_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-22 | [Quinault rainforest, Olympic National Park, Washington state, United States (© Chris Moore/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.QuinaultFerns_EN-IN6306076955_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-21 | [Colourful sky and clouds reflecting over the Ganges River, Rishikesh (© fbxx/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.InternationalDayOfYoga2026_EN-IN8379810108_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
