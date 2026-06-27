@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-28 | [Ciel spectaculaire sur Montréal, Québec (© d3sign/Getty Images)](https://cn.bing.com/th?id=OHR.MulticulturalismDY_FR-CA8766350441_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-27 | [La Tamise, Londres, Angleterre (© Daniel Lange/Getty Images)](https://cn.bing.com/th?id=OHR.ThamesSummer_FR-CA7345424379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-26 | [Bâtiments sur la Grand-Place de Bruxelles, Belgique (© Vladislav Zolotov/Getty Images Plus)](https://cn.bing.com/th?id=OHR.GrandPlace_FR-CA9674223942_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
