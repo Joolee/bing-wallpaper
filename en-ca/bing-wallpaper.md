@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-29 | [Saguaro cacti near Windgate Pass, McDowell Range, Arizona, United States (© Eric Mischke/Getty Images)](https://cn.bing.com/th?id=OHR.SaguaroSun_EN-CA5131430817_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-28 | [Dramatic sky over Montreal, Quebec (© d3sign/Getty Images)](https://cn.bing.com/th?id=OHR.MulticulturalismDY_EN-CA9116110353_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-27 | [The River Thames, London, England (© Daniel Lange/Getty Images)](https://cn.bing.com/th?id=OHR.ThamesSummer_EN-CA4092680642_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
