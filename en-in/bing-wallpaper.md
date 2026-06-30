@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-30 | [Giraffes at sunset in the Masai Mara National Reserve, Kenya (© danm/Getty Images)](https://cn.bing.com/th?id=OHR.MasaiGiraffe_EN-IN0088128873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-29 | [Bora Bora and its lagoon, South Pacific, French Polynesia (© Frederick Millett/Shutterstock)](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_EN-IN9424063973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-28 | [Saguaro cacti near Windgate Pass, McDowell Range, Arizona, United States (© Eric Mischke/Getty Images)](https://cn.bing.com/th?id=OHR.SaguaroSun_EN-IN9141839272_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
