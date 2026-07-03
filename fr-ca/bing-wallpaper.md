@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-04 | [Lucioles scintillant au-dessus d'un ruisseau, Okayama, Japon (© tdub303/Getty Images)](https://cn.bing.com/th?id=OHR.FirefliesJapan_FR-CA0747909662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-03 | [Plafond du temple d'Esna, Égypte (© Nick Brundle Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TempleEsna_FR-CA4881443149_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-02 | [Parc provincial de Dungeon, Terre-Neuve-et-Labrador, Canada (© Kaitlyn McLachlan/Getty Images)](https://cn.bing.com/th?id=OHR.DungeonPark_FR-CA4640740102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
