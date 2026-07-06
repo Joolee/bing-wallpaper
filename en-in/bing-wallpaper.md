@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-06 | [Syracuse, Sicily, Italy (© Balate Dorin/Getty Images)](https://cn.bing.com/th?id=OHR.SyracuseItaly_EN-IN1535239880_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-05 | [Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)](https://cn.bing.com/th?id=OHR.LavenderRows_EN-IN4483122586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-04 | [Kaysersberg, Alsace, France (© Federica Gentile/Getty Images)](https://cn.bing.com/th?id=OHR.KaysersbergVillage_EN-IN4147544931_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
