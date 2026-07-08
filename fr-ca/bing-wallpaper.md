@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-09 | [Lever du soleil sur le lac Atitlán, Guatemala (© shayes17/Getty Images)](https://cn.bing.com/th?id=OHR.LakeAtitlan_FR-CA5950856874_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-08 | [Toucan montagnard à bec plat avec des orchidées, Équateur (© Murray Cooper/Minden Pictures)](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_FR-CA1496372332_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-07 | [Syracuse au coucher du soleil, Sicile, Italie (© Balate Dorin/Getty Images)](https://cn.bing.com/th?id=OHR.SyracuseItaly_FR-CA2188707329_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
