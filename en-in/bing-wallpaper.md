@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-09 | [Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-IN2086925801_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-09 | [Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-IN1797190767_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-08 | [Lake Atitlán, Guatemala (© shayes17/Getty Images)](https://cn.bing.com/th?id=OHR.LakeAtitlan_EN-IN1783282765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
