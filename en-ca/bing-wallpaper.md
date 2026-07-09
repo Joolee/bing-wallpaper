@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-10 | [Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-CA7611397487_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-09 | [Sunrise at Lake Atitlán, Guatemala (© shayes17/Getty Images)](https://cn.bing.com/th?id=OHR.LakeAtitlan_EN-CA6427862489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-08 | [Plate-billed mountain toucan with orchids, Ecuador (© Murray Cooper/Minden Pictures)](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_EN-CA5781848121_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
