@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-11 | [Pink wildflowers by Emerald Lake in summer, Yoho National Park, British Columbia (© Olga Matveeva/Getty Images)](https://cn.bing.com/th?id=OHR.SummerBC_EN-CA3026184215_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-10 | [Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-CA1120759597_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-10 | [Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-CA7611397487_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
