@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-13 | [アンテロープ・キャニオン, 米国 アリゾナ州 (© Mark Skalny/Getty Images)](https://cn.bing.com/th?id=OHR.NavajoSandstone_JA-JP6458327046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-12 | [カタディン・ウッズ・アンド・ウォーターズ国定記念物, 米国 メイン州 (© Cavan Images/Offset/Shutterstock)](https://cn.bing.com/th?id=OHR.KatahdinWWNM_JA-JP6177719073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-11 | [サン＝グスタン港, フランス (© Rolf E. Staerk/Shutterstock)](https://cn.bing.com/th?id=OHR.AurayBrittany_JA-JP5965695214_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
