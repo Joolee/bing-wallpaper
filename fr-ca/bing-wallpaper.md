@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-13 | [Vue aérienne des terres et de l'océan, Victoria, Australie (© Nearmap/Getty Images)](https://cn.bing.com/th?id=OHR.VictoriaBeach_FR-CA4399261354_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-12 | [Port de Saint-Goustan, Auray, Bretagne, France (© Rolf E. Staerk/Shutterstock)](https://cn.bing.com/th?id=OHR.AurayBrittany_FR-CA4267828936_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-11 | [Fleurs sauvages au bord du lac Emerald en été, Parc national Yoho, Colombie-Britannique (© Olga Matveeva/Getty Images)](https://cn.bing.com/th?id=OHR.SummerBC_FR-CA8117974195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
