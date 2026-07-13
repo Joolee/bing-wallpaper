@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-14 | [Antelope Canyon, territoire Navajo, Arizona, États-Unis (© Mark Skalny/Getty Images)](https://cn.bing.com/th?id=OHR.NavajoSandstone_FR-CA4891671105_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-13 | [Vue aérienne des terres et de l'océan, Victoria, Australie (© Nearmap/Getty Images)](https://cn.bing.com/th?id=OHR.VictoriaBeach_FR-CA4399261354_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-12 | [Port de Saint-Goustan, Auray, Bretagne, France (© Rolf E. Staerk/Shutterstock)](https://cn.bing.com/th?id=OHR.AurayBrittany_FR-CA4267828936_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
