@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-17 | [Chaises longues sur la plage de Vaï, Crète, Grèce (© borchee/Getty Images)](https://cn.bing.com/th?id=OHR.VaiUmbrellas_FR-CA5486020151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-16 | [Monument national des bois et des eaux de Katahdin, Maine, États-Unis (© Cavan Images/Offset/Shutterstock)](https://cn.bing.com/th?id=OHR.KatahdinWWNM_FR-CA5380582641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-15 | [Jeune requin-citron dans la mangrove, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)](https://cn.bing.com/th?id=OHR.LemonShark_FR-CA5191222812_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

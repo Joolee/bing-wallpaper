@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-17 | [Navy Pier, Chicago, Illinois, United States (© Christopher.F Photography/Getty Images)](https://cn.bing.com/th?id=OHR.NavyPier_EN-CA7051482723_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-16 | [Marie Lake, John Muir Wilderness near Bishop, California, United States (© Steve Dunleavy/Getty Images)](https://cn.bing.com/th?id=OHR.MarieLake_EN-CA6168691994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-15 | [Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)](https://cn.bing.com/th?id=OHR.LemonShark_EN-CA1838897902_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
