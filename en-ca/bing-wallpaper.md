@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-20 | [Barn swallows of different subspecies resting together (© Oscar Dominguez/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-CA9613012856_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-19 | [Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)](https://cn.bing.com/th?id=OHR.DevilsBridge_EN-CA9488720591_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-18 | [A prairie storm gathers over grain silos in Saskatchewan (© mysticenergy/Getty Images)](https://cn.bing.com/th?id=OHR.GrainSilosSK_EN-CA7421778186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-19 | [Barn swallows of different subspecies resting together (© Oscar Dominguez/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.HirundoRustica_EN-IN8751353148_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-18 | [Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)](https://cn.bing.com/th?id=OHR.DevilsBridge_EN-IN8517892146_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-17 | [Blue sunbeds on a sandy beach in Vai, Crete, Greece (© borchee/Getty Images)](https://cn.bing.com/th?id=OHR.VaiUmbrellas_EN-IN8171582034_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

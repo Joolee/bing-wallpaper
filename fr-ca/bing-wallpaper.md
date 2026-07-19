@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-20 | [Hirondelles rustiques de différentes sous-espèces se reposant ensemble (© Oscar Dominguez/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.HirundoRustica_FR-CA6948278300_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-19 | [Pont du Diable dans le parc aux rhododendrons de Kromlau, en Saxe, Allemagne (© Mike Mareen/Getty Images)](https://cn.bing.com/th?id=OHR.DevilsBridge_FR-CA6046271427_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-18 | [Une tempête se forme au-dessus de silos à grains en Saskatchewan (© mysticenergy/Getty Images)](https://cn.bing.com/th?id=OHR.GrainSilosSK_FR-CA5844338431_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
