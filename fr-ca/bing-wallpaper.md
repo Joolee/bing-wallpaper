@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-31 | [Gnous migrateurs traversant la rivière Mara dans la réserve de Masai Mara, au Kenya (© Manoj Shah/Getty Images)](https://cn.bing.com/th?id=OHR.MaraCrossing_FR-CA1991901639_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-30 | [Une famille de tigres du Bengale au parc national de Ranthambore, Rajasthan, Inde (© Archna Singh/Shutterstock)](https://cn.bing.com/th?id=OHR.TigerFamily_FR-CA2238611520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-29 | [Une forêt de varech au large d'Anacapa Island, Parc national des Channel Islands, Californie, États-Unis (© Ian Shive/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.ChannelKelp_FR-CA1421794598_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
