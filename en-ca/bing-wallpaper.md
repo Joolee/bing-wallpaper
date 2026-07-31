@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-01 | [Aerial view of the Virginia Creeper Trail, Damascus, Virginia, United States (© Eifel Kreutz/Getty Images)](https://cn.bing.com/th?id=OHR.VirginiaTrail_EN-CA9063701239_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-31 | [Monument Valley, Navajo Nation, Arizona, United States (© Westend61/Adobe Stock)](https://cn.bing.com/th?id=OHR.NavajoNation_EN-CA0609244482_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-30 | [A family of Bengal tigers at Ranthambore National Park, Rajasthan, India (© Archna Singh/Shutterstock)](https://cn.bing.com/th?id=OHR.TigerFamily_EN-CA0136574316_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

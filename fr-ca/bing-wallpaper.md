@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-01 | [Vue aérienne du sentier Virginia Creeper Trail, Damascus, Virginie, États-Unis (© Eifel Kreutz/Getty Images)](https://cn.bing.com/th?id=OHR.VirginiaTrail_FR-CA3929932573_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-31 | [Gnous migrateurs traversant la rivière Mara dans la réserve de Masai Mara, au Kenya (© Manoj Shah/Getty Images)](https://cn.bing.com/th?id=OHR.MaraCrossing_FR-CA1991901639_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-30 | [Une famille de tigres du Bengale au parc national de Ranthambore, Rajasthan, Inde (© Archna Singh/Shutterstock)](https://cn.bing.com/th?id=OHR.TigerFamily_FR-CA2238611520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

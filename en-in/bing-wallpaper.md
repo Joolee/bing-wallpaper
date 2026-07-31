@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-31 | [Aerial view of the Virginia Creeper Trail, Damascus, Virginia, United States (© Eifel Kreutz/Getty Images)](https://cn.bing.com/th?id=OHR.VirginiaTrail_EN-IN1200650554_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-30 | [Monument Valley, Navajo Nation, Arizona, United States (© Westend61/Adobe Stock)](https://cn.bing.com/th?id=OHR.NavajoNation_EN-IN0765516783_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-29 | [Dhamek Stupa, Sarnath, Varanasi, Uttar Pradesh (© franck metois/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.GuruPurnima2026_EN-IN0332794905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
