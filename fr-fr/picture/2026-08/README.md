@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2026-08)
-![](https://cn.bing.com/th?id=OHR.SeaStacks_FR-FR4057620009_UHD.jpg&w=1000)Today: [Stacks près de Wilson Creek Beach, False Klamath Cove, Parc national et parcs d’État de Redwood, Californie, États-Unis (© benedek/Getty Images)](https://cn.bing.com/th?id=OHR.SeaStacks_FR-FR4057620009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.HelsinkiBlue_FR-FR8717266334_UHD.jpg&w=1000)Today: [Le littoral d'Helsinki pendant l'heure bleue, Uusimaa, Finlande (© Miemo Penttinen/Getty Images)](https://cn.bing.com/th?id=OHR.HelsinkiBlue_FR-FR8717266334_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
-|![](https://cn.bing.com/th?id=OHR.SeaStacks_FR-FR4057620009_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-08-01 [download 4k](https://cn.bing.com/th?id=OHR.SeaStacks_FR-FR4057620009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+|![](https://cn.bing.com/th?id=OHR.HelsinkiBlue_FR-FR8717266334_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-08-02 [download 4k](https://cn.bing.com/th?id=OHR.HelsinkiBlue_FR-FR8717266334_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.SeaStacks_FR-FR4057620009_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-08-01 [download 4k](https://cn.bing.com/th?id=OHR.SeaStacks_FR-FR4057620009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
