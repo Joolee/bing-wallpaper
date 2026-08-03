@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-04 | [Bateaux colorés dans le port de Marsaxlokk, Malte (© Klubovy/Getty Images)](https://cn.bing.com/th?id=OHR.BoatsMalta_FR-CA4595918849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-03 | [Le littoral d'Helsinki pendant l'heure bleue, Uusimaa, Finlande (© Miemo Penttinen/Getty Images)](https://cn.bing.com/th?id=OHR.HelsinkiBlue_FR-CA4418500007_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-02 | [Une série de coulées de lave se déverse dans l'océan, Grande Île d'Hawaï, États-Unis (© Ken McCurdy/Getty Images)](https://cn.bing.com/th?id=OHR.HawaiiLava_FR-CA6922990582_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-04 | [Colourful boats in Marsaxlokk Harbour, Malta (© Klubovy/Getty Images)](https://cn.bing.com/th?id=OHR.BoatsMalta_EN-CA2874745568_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-03 | [Helsinki's shoreline during blue hour, Uusimaa, Finland (© Miemo Penttinen/Getty Images)](https://cn.bing.com/th?id=OHR.HelsinkiBlue_EN-CA2592660505_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-02 | [A series of lava flows spill into the ocean, Big Island, Hawaii, United States (© Ken McCurdy/Getty Images)](https://cn.bing.com/th?id=OHR.HawaiiLava_EN-CA2181536757_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
