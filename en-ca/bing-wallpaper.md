@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-07 | [Edmonton at night, Alberta (© Tetyana Babiy/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.EDMFolkFest_EN-CA4302918547_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-06 | [Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)](https://cn.bing.com/th?id=OHR.FezMorocco_EN-CA4182192708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-05 | [Florida burrowing owlet, Cape Coral, Florida, United States (© mlorenzphotography/Getty Images)](https://cn.bing.com/th?id=OHR.AdorableOwlet_EN-CA3620790645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
