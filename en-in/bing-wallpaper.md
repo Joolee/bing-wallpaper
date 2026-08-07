@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-07 | [Hoodoos in Ah‑Shi‑Sle‑Pah Wilderness in San Juan County, New Mexico, United States (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-IN0485781632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-06 | [Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)](https://cn.bing.com/th?id=OHR.MaraCrossing_EN-IN3635876531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-05 | [Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)](https://cn.bing.com/th?id=OHR.FezMorocco_EN-IN3277799020_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

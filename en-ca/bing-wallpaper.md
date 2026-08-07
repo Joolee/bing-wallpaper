@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-08 | [Lime Kiln Lighthouse on San Juan Island, Washington state, United States (© Edmund Lowe Photography/Shutterstock)](https://cn.bing.com/th?id=OHR.LimeKiln_EN-CA4364402853_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-07 | [Edmonton at night, Alberta (© Tetyana Babiy/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.EDMFolkFest_EN-CA4302918547_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-06 | [Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)](https://cn.bing.com/th?id=OHR.FezMorocco_EN-CA4182192708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
