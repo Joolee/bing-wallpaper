@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-09 | [Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)](https://cn.bing.com/th?id=OHR.StocktonInfinity_EN-CA4539873012_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-08 | [Lime Kiln Lighthouse on San Juan Island, Washington state, United States (© Edmund Lowe Photography/Shutterstock)](https://cn.bing.com/th?id=OHR.LimeKiln_EN-CA4364402853_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-07 | [Edmonton at night, Alberta (© Tetyana Babiy/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.EDMFolkFest_EN-CA4302918547_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
