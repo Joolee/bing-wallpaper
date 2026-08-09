@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-10 | [Centre culturel Tjibaou, Nouvelle-Calédonie (© Fabien Astre/Alamy)](https://cn.bing.com/th?id=OHR.JMTjibaou_FR-CA3860969701_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-09 | [L’Infinity Bridge à Stockton-on-Tees, Angleterre (© Bahadir Yeniceri/Shutterstock)](https://cn.bing.com/th?id=OHR.StocktonInfinity_FR-CA3431140548_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-08 | [Phare de Lime Kiln sur l’île de San Juan, État de Washington, États-Unis (© Edmund Lowe Photography/Shutterstock)](https://cn.bing.com/th?id=OHR.LimeKiln_FR-CA1380170697_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
