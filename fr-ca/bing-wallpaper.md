@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-12 | [Maisons colorées sur les rives du canal Nyhavn, Copenhague, Danemark (© emicristea/Getty Images)](https://cn.bing.com/th?id=OHR.ColorfulCop_FR-CA4855520574_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-11 | [Parc national Joshua Tree, Californie, États-Unis (© JJ Landscapes/Getty Images)](https://cn.bing.com/th?id=OHR.SandPath_FR-CA4489726034_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-10 | [Centre culturel Tjibaou, Nouvelle-Calédonie (© Fabien Astre/Alamy)](https://cn.bing.com/th?id=OHR.JMTjibaou_FR-CA3860969701_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
