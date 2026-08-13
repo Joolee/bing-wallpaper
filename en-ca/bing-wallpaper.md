@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-14 | [Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-CA5389279972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-13 | [A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://cn.bing.com/th?id=OHR.ElephantDay_EN-CA5228508211_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-12 | [Colourful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-CA5069380652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
