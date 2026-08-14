@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-15 | [Vue aérienne d’un écoduc près de Zakrzów, Pologne (© bbsferrari/Getty Images)](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_FR-CA4397568569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-14 | [Perséides au-dessus de l’observatoire du Teide, Tenerife, Espagne (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.PerseidasTenerife_FR-CA5435617740_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-13 | [Un troupeau d’éléphants, Parc national d’Amboseli, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://cn.bing.com/th?id=OHR.ElephantDay_FR-CA5269724209_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
