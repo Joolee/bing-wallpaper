@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-16 | [Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico, United States (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.ValleyDreams_EN-CA5979323627_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-15 | [Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-CA5559253434_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-14 | [Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-CA5389279972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
