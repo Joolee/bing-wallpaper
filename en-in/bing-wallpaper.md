@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-16 | [Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-IN1645230186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-15 | [The India Gate, New Delhi (© Arnav Pratap Singh/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.IndependenceDay2026_EN-IN1491568628_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-14 | [Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-IN1351400780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

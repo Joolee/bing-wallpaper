@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-17 | [Monastère de Ross Errilly, Comté de Galway, Irlande (© Maria Janus/Shutterstock)](https://cn.bing.com/th?id=OHR.RossErrillyRuins_FR-CA6852023489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-16 | [Cheminées de fées à Ah Shi Sle Pah Wilderness dans le comté de San Juan, Nouveau-Mexique, États-Unis (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.ValleyDreams_FR-CA7670530303_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-15 | [Vue aérienne d’un écoduc près de Zakrzów, Pologne (© bbsferrari/Getty Images)](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_FR-CA4397568569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
