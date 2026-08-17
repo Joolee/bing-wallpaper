@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-17 | [Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)](https://cn.bing.com/th?id=OHR.CabilaoClowns_EN-IN1781663885_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-16 | [Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)](https://cn.bing.com/th?id=OHR.RossErrillyRuins_EN-IN1645230186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-15 | [The India Gate, New Delhi (© Arnav Pratap Singh/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.IndependenceDay2026_EN-IN1491568628_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
