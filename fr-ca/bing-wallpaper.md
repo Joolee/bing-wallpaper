@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-21 | [Une orque à la surface du canal de Lynn, près des montagnes Chilkat, Alaska, États-Unis (© John Hyde/Alamy)](https://cn.bing.com/th?id=OHR.LynnCanalOrca_FR-CA5672693565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-20 | [Whytecliff Park, West Vancouver, Colombie-Britannique (© Aolin Chen/Getty Images)](https://cn.bing.com/th?id=OHR.WhyteCliffP_FR-CA5468356584_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-19 | [Vue aérienne de Palmanova, Friuli, Italie (© Riccardo Saponi/Getty Images)](https://cn.bing.com/th?id=OHR.Palmanova_FR-CA6927775501_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
