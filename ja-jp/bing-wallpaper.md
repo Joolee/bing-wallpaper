@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-22 | [イカルスヒメシジミ, イングランド (© Ross Hoddinott/Nature Picture Library)](https://cn.bing.com/th?id=OHR.CommonBlue_JA-JP8682246058_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-21 | [ユリア峠, スイス (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.JulierPass_JA-JP8487146662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-20 | [シャチ, 米国 アラスカ州 (© John Hyde/Alamy)](https://cn.bing.com/th?id=OHR.LynnCanalOrca_JA-JP7810665550_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
