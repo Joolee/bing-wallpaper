@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-23 | [Argus bleu, Devon, Angleterre (© Ross Hoddinott/Nature Picture Library)](https://cn.bing.com/th?id=OHR.CommonBlue_FR-CA6957827229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-22 | [L’Exposition nationale canadienne à Toronto (© Wirestock/Getty Images)](https://cn.bing.com/th?id=OHR.CanadaNE_FR-CA5981626201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-21 | [Une orque à la surface du canal de Lynn, près des montagnes Chilkat, Alaska, États-Unis (© John Hyde/Alamy)](https://cn.bing.com/th?id=OHR.LynnCanalOrca_FR-CA5672693565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
