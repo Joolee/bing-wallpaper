@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-24 | [Brown bear fishing in river, Katmai National Park, Alaska, United States (© Pal Hermansen/Nature Picture Library)](https://cn.bing.com/th?id=OHR.KatmaiBear_EN-CA7184475938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-23 | [Common blue butterfly, Devon, England (© Ross Hoddinott/Nature Picture Library)](https://cn.bing.com/th?id=OHR.CommonBlue_EN-CA6718491810_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-22 | [Aerial view of Canadian National Exhibition in Toronto (© Wirestock/Getty Images)](https://cn.bing.com/th?id=OHR.CanadaNE_EN-CA9090606067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
