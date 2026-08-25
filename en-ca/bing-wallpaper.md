@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-26 | [Atlantic puffin holding a wild iris in his beak in Elliston, Newfoundland (© mlorenzphotography/Getty Images)](https://cn.bing.com/th?id=OHR.PurplePuffin_EN-CA8959604660_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-25 | [Brooklyn Bridge, New York City, United States (© shayes17/Getty Images)](https://cn.bing.com/th?id=OHR.BKBridge_EN-CA9847334652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-24 | [Brown bear fishing in river, Katmai National Park, Alaska, United States (© Pal Hermansen/Nature Picture Library)](https://cn.bing.com/th?id=OHR.KatmaiBear_EN-CA7184475938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
