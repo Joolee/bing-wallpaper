@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-27 | [Aurores boréales sur Kirkjufell, Islande (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.AurorasIceland_FR-CA6768685677_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-26 | [Macareux moine tenant un iris dans son bec à Elliston, Terre-Neuve (© mlorenzphotography/Getty Images)](https://cn.bing.com/th?id=OHR.PurplePuffin_FR-CA6231129761_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-25 | [Pont de Brooklyn, New York, États-Unis (© shayes17/Getty Images)](https://cn.bing.com/th?id=OHR.BKBridge_FR-CA6863459006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

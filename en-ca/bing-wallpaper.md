@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-27 | [Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-CA9381288782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-26 | [Atlantic puffin holding a wild iris in his beak in Elliston, Newfoundland (© mlorenzphotography/Getty Images)](https://cn.bing.com/th?id=OHR.PurplePuffin_EN-CA8959604660_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-25 | [Brooklyn Bridge, New York City, United States (© shayes17/Getty Images)](https://cn.bing.com/th?id=OHR.BKBridge_EN-CA9847334652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
