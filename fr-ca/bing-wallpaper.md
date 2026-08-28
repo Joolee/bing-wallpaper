@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-29 | [Le Mont-Saint-Michel à marée haute, Manche, Normandie, France (© Clement LEONARD/Getty Images)](https://cn.bing.com/th?id=OHR.MichelSunset_FR-CA7208916628_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-28 | [Volée de flamants nains à l’aube, Lac Magadi, Kenya (© Denis-Huot/Nature Picture Library)](https://cn.bing.com/th?id=OHR.LakeMagadi_FR-CA8220213797_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-27 | [Aurores boréales sur Kirkjufell, Islande (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.AurorasIceland_FR-CA6768685677_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
