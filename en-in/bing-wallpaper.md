@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-31 | [Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-IN0367504407_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-30 | [Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)](https://cn.bing.com/th?id=OHR.YellowShark_EN-IN0280820685_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-29 | [Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)](https://cn.bing.com/th?id=OHR.SantaCatarina_EN-IN0197195904_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
