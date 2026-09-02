@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-03 | [Cabanes de plage, Southwold, Suffolk Heritage Coast, Angleterre (© stevendocwra/Getty Images)](https://cn.bing.com/th?id=OHR.SuffolkHuts_FR-CA9474847832_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-02 | [Gymnopus androsaceus, Biélorussie (© Máté/Nature Picture Library)](https://cn.bing.com/th?id=OHR.HorseHairShroom_FR-CA8035285563_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-01 | [Détails d’un plafond, Régistan, Samarcande, Ouzbékistan (© Piero M. Bianchi/Getty Images)](https://cn.bing.com/th?id=OHR.SamarkandCeiling_FR-CA7845792345_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
