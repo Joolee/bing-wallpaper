@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-05 | [Phare de Westerheversand à Westerhever, Schleswig-Holstein, Allemagne (© bluejayphoto/Getty Images)](https://cn.bing.com/th?id=OHR.Westerheversand_FR-CA7932678396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-04 | [Route sinueuse du col du Julier, Suisse (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.JulierPass_FR-CA8399720241_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-03 | [Cabanes de plage, Southwold, Suffolk Heritage Coast, Angleterre (© stevendocwra/Getty Images)](https://cn.bing.com/th?id=OHR.SuffolkHuts_FR-CA9474847832_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
