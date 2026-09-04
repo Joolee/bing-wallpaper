@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-05 | [Khairul Manazil, New Delhi (© SoumenNath/E+/Getty Images)](https://cn.bing.com/th?id=OHR.PuranaQila2026_EN-IN6620233403_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-04 | [Westerheversand Lighthouse in Westerhever, Schleswig-Holstein, Germany (© bluejayphoto/Getty Images)](https://cn.bing.com/th?id=OHR.Westerheversand_EN-IN6508979486_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-03 | [Coyote Buttes, Vermilion Cliffs National Monument, Arizona, United States (© James Hager/Getty Images)](https://cn.bing.com/th?id=OHR.AZWilderness_EN-IN0610933686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
