@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-07 | [Lac Fyans, Parc national des Grampians, Victoria, Australie (© tracielouise/Getty Images)](https://cn.bing.com/th?id=OHR.LakeFyans_FR-CA5882884303_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-06 | [Brillant à couronne verte butinant des fleurs tropicales de pinces de homard, Costa Rica (© Paul Hobson/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GreenCrowned_FR-CA5694913509_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-05 | [Phare de Westerheversand à Westerhever, Schleswig-Holstein, Allemagne (© bluejayphoto/Getty Images)](https://cn.bing.com/th?id=OHR.Westerheversand_FR-CA7932678396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
