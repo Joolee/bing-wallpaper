@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-07 | [Old Town Hall, Bamberg, Germany (© SCStock/Getty Images)](https://cn.bing.com/th?id=OHR.BambergTownhall_EN-IN6755744687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-06 | [Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)](https://cn.bing.com/th?id=OHR.LakeFyans_EN-IN6678174820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-05 | [Khairul Manazil, New Delhi (© SoumenNath/E+/Getty Images)](https://cn.bing.com/th?id=OHR.PuranaQila2026_EN-IN6620233403_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-08 | [Ancien hôtel de ville de Bamberg, Allemagne (© SCStock/Getty Images)](https://cn.bing.com/th?id=OHR.BambergTownhall_FR-CA6341180793_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-07 | [Lac Fyans, Parc national des Grampians, Victoria, Australie (© tracielouise/Getty Images)](https://cn.bing.com/th?id=OHR.LakeFyans_FR-CA5882884303_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-06 | [Brillant à couronne verte butinant des fleurs tropicales de pinces de homard, Costa Rica (© Paul Hobson/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GreenCrowned_FR-CA5694913509_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
