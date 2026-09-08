@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-09 | [Gabit Keni Beach near Ankola, Karnataka (© Amith Nag Photography/Getty Images)](https://cn.bing.com/th?id=OHR.GabitKeni_EN-IN7043546490_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-08 | [Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)](https://cn.bing.com/th?id=OHR.BeechEngland_EN-IN6965523030_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-07 | [Old Town Hall, Bamberg, Germany (© SCStock/Getty Images)](https://cn.bing.com/th?id=OHR.BambergTownhall_EN-IN6755744687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
