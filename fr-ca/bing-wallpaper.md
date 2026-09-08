@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-09 | [Hêtre au milieu de champs de céréales, East Meon, Parc national des South Downs, Hampshire, Angleterre (© Guy Edwardes/Minden Pictures)](https://cn.bing.com/th?id=OHR.BeechEngland_FR-CA6408073757_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-08 | [Ancien hôtel de ville de Bamberg, Allemagne (© SCStock/Getty Images)](https://cn.bing.com/th?id=OHR.BambergTownhall_FR-CA6341180793_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-07 | [Lac Fyans, Parc national des Grampians, Victoria, Australie (© tracielouise/Getty Images)](https://cn.bing.com/th?id=OHR.LakeFyans_FR-CA5882884303_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
