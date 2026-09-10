@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-11 | [The Roy Thomson Hall, Toronto, Ontario (© eskystudio/Shutterstock)](https://cn.bing.com/th?id=OHR.TIFFRoy_EN-CA6717935809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-10 | [Gabit Keni Beach near Ankola, Karnataka, India (© Amith Nag Photography/Getty Images)](https://cn.bing.com/th?id=OHR.GabitKeni_EN-CA6326584239_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-09 | [Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)](https://cn.bing.com/th?id=OHR.BeechEngland_EN-CA5827828853_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
