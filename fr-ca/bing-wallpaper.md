@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-12 | [Vue aérienne de la baie de Villefranche-sur-Mer, Alpes-Maritimes, Provence-Alpes-Côte d'Azur, France (© StockByM/Getty Images)](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_FR-CA0451501455_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-11 | [Roy Thomson Hall, Toronto, Ontario (© eskystudio/Shutterstock)](https://cn.bing.com/th?id=OHR.TIFFRoy_FR-CA9616987709_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-10 | [Plage de Gabit Keni près d’Ankola, Karnataka, Inde (© Amith Nag Photography/Getty Images)](https://cn.bing.com/th?id=OHR.GabitKeni_FR-CA6967891600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
