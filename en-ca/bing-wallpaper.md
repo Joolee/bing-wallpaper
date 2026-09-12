@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-13 | [California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SardineBait_EN-CA8301633998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-12 | [Villefranche-sur-Mer, French Riviera, France (© StockByM/Getty Images)](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_EN-CA7960015252_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-11 | [The Roy Thomson Hall, Toronto, Ontario (© eskystudio/Shutterstock)](https://cn.bing.com/th?id=OHR.TIFFRoy_EN-CA6717935809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
