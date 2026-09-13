@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-14 | [Cadini di Misurina, Dolomites, Vénétie, Italie (© Vithun Khamsong/Getty Images)](https://cn.bing.com/th?id=OHR.MisurinaPeak_FR-CA1564788898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-13 | [Des lions de mer de Californie chassant un banc de sardines au large du Mexique, Océan Pacifique (© Henley Spiers/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SardineBait_FR-CA8182471916_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-12 | [Vue aérienne de la baie de Villefranche-sur-Mer, Alpes-Maritimes, Provence-Alpes-Côte d'Azur, France (© StockByM/Getty Images)](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_FR-CA0451501455_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
