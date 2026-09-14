@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-15 | [Red-and-green macaws (© markes51/Getty Images)](https://cn.bing.com/th?id=OHR.RedMacawsFlight_EN-IN8058515331_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-14 | [Field of kochia plants, China (© lingqi xie/Getty Images)](https://cn.bing.com/th?id=OHR.KochiaChina_EN-IN7950718460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-13 | [Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)](https://cn.bing.com/th?id=OHR.MisurinaPeak_EN-IN7734195824_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
