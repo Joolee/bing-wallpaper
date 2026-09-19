@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-20 | [Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)](https://cn.bing.com/th?id=OHR.ParisSunset_EN-IN7894876294_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-19 | [Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-IN7812928124_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-18 | [Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_EN-IN7644884043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
