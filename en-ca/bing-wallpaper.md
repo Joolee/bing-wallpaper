@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-20 | [Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)](https://cn.bing.com/th?id=OHR.AlphornBavaria_EN-CA4386550572_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-19 | [Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_EN-CA3554895186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-18 | [Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.Olvera_EN-CA0142222460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
