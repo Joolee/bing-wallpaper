@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-21 | [La tour Eiffel au coucher de soleil, Paris, France (© Alexander Spatari/Getty Images)](https://cn.bing.com/th?id=OHR.ParisSunset_FR-CA9828122530_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-20 | [Joueurs de cor des Alpes, Bavière, Allemagne (© U. J. Alexander/Shutterstock)](https://cn.bing.com/th?id=OHR.AlphornBavaria_FR-CA8631597445_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-19 | [Col de Winnats, Parc national du Peak District, Angleterre (© Daniel_Kay/Getty Images)](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_FR-CA8454495397_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
