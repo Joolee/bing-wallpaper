@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-24 | [Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-CA7225706887_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-23 | [Fall aspen trees near Guardsman Pass, Utah, United States (© Danita Delimont/Shutterstock)](https://cn.bing.com/th?id=OHR.FallAspens_EN-CA6568286298_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-22 | [Sea otter grooming fur, Monterey Bay, California, United States (© Suzi Eszterhas/Minden Pictures)](https://cn.bing.com/th?id=OHR.GroomingOtter_EN-CA5802555233_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
