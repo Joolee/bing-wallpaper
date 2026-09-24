@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-25 | [Vue aérienne de la plage de sable noir El Golfo, Lanzarote, Îles Canaries, Espagne (© Westend61/Adobe Stock)](https://cn.bing.com/th?id=OHR.ElGolfo_FR-CA4400313791_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-24 | [Maison Hobbit dans le décor de Hobbiton, Matamata, Nouvelle-Zélande (© djr-photography/Shutterstock)](https://cn.bing.com/th?id=OHR.TolkienWeek_FR-CA4077123678_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-23 | [Peupliers faux-trembles près du col de Guardsman Pass, Utah, États-Unis (© Danita Delimont/Shutterstock)](https://cn.bing.com/th?id=OHR.FallAspens_FR-CA3892904931_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
