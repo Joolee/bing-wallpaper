@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-25 | [Chinese lanterns for Mid-Autumn Festival celebration (© LeeYiuTung/Getty Images)](https://cn.bing.com/th?id=OHR.MidAutumn2026_EN-IN8396341266_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-24 | [Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-IN8323924749_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-23 | [Autumn aspen trees near Guardsman Pass, Utah, United States (© Danita Delimont/Shutterstock)](https://cn.bing.com/th?id=OHR.FallAspens_EN-IN8196194133_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
