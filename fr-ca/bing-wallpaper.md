@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-27 | [Les chutes du Fer-à-Cheval illuminées le soir à Niagara Falls, Ontario (© Jianmei Wang/E+/Getty Images)](https://cn.bing.com/th?id=OHR.NiagaraOnt_FR-CA4828648207_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-26 | [Lanternes chinoises lors de la Fête de la Mi-Automne (© LeeYiuTung/Getty Images)](https://cn.bing.com/th?id=OHR.MidAutumn2026_FR-CA5028867730_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-25 | [Vue aérienne de la plage de sable noir El Golfo, Lanzarote, Îles Canaries, Espagne (© Westend61/Adobe Stock)](https://cn.bing.com/th?id=OHR.ElGolfo_FR-CA4400313791_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
