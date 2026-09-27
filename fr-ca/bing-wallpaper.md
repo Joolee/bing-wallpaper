@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-28 | [Crabe décorateur sur une plume de mer, Parc national de Komodo, Indonésie (© Alex Mustard/Nature Picture Library)](https://cn.bing.com/th?id=OHR.DecoCrab_FR-CA5033026630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-27 | [Les chutes du Fer-à-Cheval illuminées le soir à Niagara Falls, Ontario (© Jianmei Wang/E+/Getty Images)](https://cn.bing.com/th?id=OHR.NiagaraOnt_FR-CA4828648207_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-26 | [Lanternes chinoises lors de la Fête de la Mi-Automne (© LeeYiuTung/Getty Images)](https://cn.bing.com/th?id=OHR.MidAutumn2026_FR-CA5028867730_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
