@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-29 | [La salle Sattais Katcheri dans le fort d’Amber près de Jaipur, Rajasthan, Inde (© R.M. Nunes/Getty Images)](https://cn.bing.com/th?id=OHR.AmberHall_FR-CA5187503259_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-28 | [Crabe décorateur sur une plume de mer, Parc national de Komodo, Indonésie (© Alex Mustard/Nature Picture Library)](https://cn.bing.com/th?id=OHR.DecoCrab_FR-CA5033026630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-27 | [Les chutes du Fer-à-Cheval illuminées le soir à Niagara Falls, Ontario (© Jianmei Wang/E+/Getty Images)](https://cn.bing.com/th?id=OHR.NiagaraOnt_FR-CA4828648207_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
