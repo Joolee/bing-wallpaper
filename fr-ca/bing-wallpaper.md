@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-01 | [Panure à moustaches mâle, Norfolk, Angleterre (© Andrew Sproule/Shutterstock)](https://cn.bing.com/th?id=OHR.BeardReedling_FR-CA5707691338_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-30 | [Les eaux bleues de la rivière Kasilof, Alaska, États-Unis (© jared lloyd/Getty Images)](https://cn.bing.com/th?id=OHR.KasilofRiver_FR-CA9696942647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-29 | [La salle Sattais Katcheri dans le fort d’Amber près de Jaipur, Rajasthan, Inde (© R.M. Nunes/Getty Images)](https://cn.bing.com/th?id=OHR.AmberHall_FR-CA5187503259_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
