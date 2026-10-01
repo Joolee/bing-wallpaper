@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-02 | [Mahatma Gandhi statue at the Sabarmati Ashram in Ahmedabad, Gujarat (© Kandarp Gupta/Alamy)](https://cn.bing.com/th?id=OHR.GandhiJayanti2026_EN-IN7052712451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-01 | [View into the sky from Nathmal Ki Haveli courtyard, Jaisalmer, Rajasthan (© Emad Aljumah/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.NathmaljiHaveli2026_EN-IN9027003376_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-30 | [Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)](https://cn.bing.com/th?id=OHR.BeardReedling_EN-IN8949803206_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
