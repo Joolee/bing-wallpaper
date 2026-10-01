@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-02 | [Coucher de soleil vu depuis Olmsted Point, Parc national de Yosemite, Californie, États-Unis (© Robb Hirsch/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.OlmstedPoint_FR-CA5921347773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-01 | [Panure à moustaches mâle, Norfolk, Angleterre (© Andrew Sproule/Shutterstock)](https://cn.bing.com/th?id=OHR.BeardReedling_FR-CA5707691338_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-30 | [Les eaux bleues de la rivière Kasilof, Alaska, États-Unis (© jared lloyd/Getty Images)](https://cn.bing.com/th?id=OHR.KasilofRiver_FR-CA9696942647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
