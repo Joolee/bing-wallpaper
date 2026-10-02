@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-03 | [Chattooga River in the Appalachian Mountains, North Carolina, United States (© mtilghma/Getty Images)](https://cn.bing.com/th?id=OHR.ChattoogaRiver_EN-CA5808971566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-02 | [Sunset from Olmsted Point, Yosemite National Park, California, United States (© Robb Hirsch/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-CA1947517359_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-01 | [Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)](https://cn.bing.com/th?id=OHR.BeardReedling_EN-CA1270469815_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
