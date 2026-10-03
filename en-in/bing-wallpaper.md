@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-04 | [Artemis I moon rocket at Launch Complex 39B, Kennedy Space Center, Florida, United States (© EVA MARIE UZCATEGUI/Getty Images)](https://cn.bing.com/th?id=OHR.ArtemisRocket_EN-IN7247754075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-03 | [Brown bear in Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska, United States (© Danny Green/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GrizzlySwim_EN-IN7120112042_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-02 | [Mahatma Gandhi statue at the Sabarmati Ashram in Ahmedabad, Gujarat (© Kandarp Gupta/Alamy)](https://cn.bing.com/th?id=OHR.GandhiJayanti2026_EN-IN7052712451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
