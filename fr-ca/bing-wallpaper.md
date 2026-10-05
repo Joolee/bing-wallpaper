@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-06 | [Manchots Adélie, Antarctique (© Otto Plantema/Minden Pictures)](https://cn.bing.com/th?id=OHR.AdelieTeacher_FR-CA2651914460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-05 | [Fusée lunaire Artemis I au complexe de lancement 39B, Centre spatial Kennedy, Floride, 15 juin 2022 (© EVA MARIE UZCATEGUI/Getty Images)](https://cn.bing.com/th?id=OHR.ArtemisRocket_FR-CA1622707789_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-04 | [Hôtel de ville de Toronto illuminé la nuit (© EB Adventure Photography/Shutterstock)](https://cn.bing.com/th?id=OHR.NuitBToro_FR-CA5653208063_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
