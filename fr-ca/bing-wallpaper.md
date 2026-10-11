@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-12 | [Moulin de Glade Creek, parc d'État de Babcock, Virginie-Occidentale, États-Unis (© dszc/Getty Images)](https://cn.bing.com/th?id=OHR.BabcockSP_FR-CA9649349647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-11 | [Cormorans à aigrettes au-dessus de la baie de Monterey, Californie, États-Unis (© Hiroya Minakuchi/Minden Pictures)](https://cn.bing.com/th?id=OHR.CormorantsFlight_FR-CA9194690567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-10 | [Vue des îles Sanguinaires depuis la Corse (© Francesco Riccardo Iacomino/Getty Images)](https://cn.bing.com/th?id=OHR.IlesSanguinaires_FR-CA7551520379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
