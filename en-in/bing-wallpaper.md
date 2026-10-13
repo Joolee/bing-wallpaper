@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-13 | [Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)](https://cn.bing.com/th?id=OHR.PlitviceAutumn_EN-IN8498813927_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-12 | [Mumbles Pier, Swansea, Wales (© Helen Hotson/Shutterstock)](https://cn.bing.com/th?id=OHR.MumblesSwansea2026_EN-IN8292362227_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-11 | [Glade Creek Grist Mill, Babcock State Park, West Virginia, United States (© dszc/Getty Images)](https://cn.bing.com/th?id=OHR.BabcockSP_EN-IN8141556742_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
