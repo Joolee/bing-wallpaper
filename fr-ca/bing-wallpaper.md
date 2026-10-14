@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-15 | [Fossiles d'ammonites du Jurassique (© J Nemchinova/Getty Images)](https://cn.bing.com/th?id=OHR.AmmoniteFossils_FR-CA9216035858_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-14 | [Parc national des lacs de Plitvice, Croatie (© Jan Wlodarczyk/Alamy)](https://cn.bing.com/th?id=OHR.PlitviceAutumn_FR-CA8939506796_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-13 | [Lac Baker près d'East Bolton, Québec (© SEBASTIEN ST-JEAN/Contributor/Getty Images)](https://cn.bing.com/th?id=OHR.HeartLakeTG_FR-CA2797611244_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
