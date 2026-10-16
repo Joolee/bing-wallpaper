@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-17 | [Maligne Lake, Jasper National Park, Alberta (© Andrey Popov/Getty Images)](https://cn.bing.com/th?id=OHR.MaligneFest_EN-CA6755477171_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-16 | [View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)](https://cn.bing.com/th?id=OHR.WroclawPoland_EN-CA2941585195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-15 | [Brown bear in Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska, United States (© Danny Green/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GrizzlySwim_EN-CA2710630781_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

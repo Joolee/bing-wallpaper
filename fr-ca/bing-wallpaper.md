@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-17 | [Lac Maligne, Parc national Jasper, Alberta (© Andrey Popov/Getty Images)](https://cn.bing.com/th?id=OHR.MaligneFest_FR-CA1812148894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-16 | [Vue sur la place du marché de Wrocław depuis le pont des Sorcières, Wrocław, Pologne (© Piotr Mitelski/Shutterstock)](https://cn.bing.com/th?id=OHR.WroclawPoland_FR-CA0326496890_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-15 | [Fossiles d'ammonites du Jurassique (© J Nemchinova/Getty Images)](https://cn.bing.com/th?id=OHR.AmmoniteFossils_FR-CA9216035858_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
