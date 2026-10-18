@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-19 | [Dolbadarn Castle, Llanberis, Eryri National Park (Snowdonia), Wales (© joe daniel price/Getty Images)](https://cn.bing.com/th?id=OHR.DolbadarnWales_EN-CA7756366430_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-18 | [Life-size replica of Chauvet Cave art in Vallon-Pont-d'Arc, France (© Audrey Poree/Alamy)](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-CA7438357428_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-17 | [Maligne Lake, Jasper National Park, Alberta (© Andrey Popov/Getty Images)](https://cn.bing.com/th?id=OHR.MaligneFest_EN-CA6755477171_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
