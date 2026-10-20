@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-21 | [Paresseux à gorge brune, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://cn.bing.com/th?id=OHR.BrownSloth_FR-CA4031451695_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-20 | [Le Grand Canal à Venise, Italie (© Juan Romero/Cavan Images)](https://cn.bing.com/th?id=OHR.VeniceSunrise_FR-CA4290531365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-19 | [Château de Dolbadarn, Llanberis, Parc national d’Eryri (© joe daniel price/Getty Images)](https://cn.bing.com/th?id=OHR.DolbadarnWales_FR-CA3676677924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
