@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-23 | [Le parc national de Naejangsan en automne, Corée du Sud (© Twenty47studio/Getty Images)](https://cn.bing.com/th?id=OHR.NaejangsanNP_FR-CA4917501592_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-22 | [Le pont Nguyen Hoang sur la rivière des Parfums, Hué, Vietnam (© VU PHAM VAN/Getty Images)](https://cn.bing.com/th?id=OHR.VietnamBridge_FR-CA4323829972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-21 | [Paresseux à gorge brune, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://cn.bing.com/th?id=OHR.BrownSloth_FR-CA4031451695_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
