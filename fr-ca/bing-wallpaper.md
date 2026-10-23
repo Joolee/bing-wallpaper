@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-24 | [Deux loups gris, Parc national de Yellowstone, Wyoming, États-Unis (© John Morrison/Getty Images)](https://cn.bing.com/th?id=OHR.YellowstoneWolves_FR-CA5316157363_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-23 | [Le parc national de Naejangsan en automne, Corée du Sud (© Twenty47studio/Getty Images)](https://cn.bing.com/th?id=OHR.NaejangsanNP_FR-CA4917501592_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-22 | [Le pont Nguyen Hoang sur la rivière des Parfums, Hué, Vietnam (© VU PHAM VAN/Getty Images)](https://cn.bing.com/th?id=OHR.VietnamBridge_FR-CA4323829972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
