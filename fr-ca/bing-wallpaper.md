@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-26 | [Le mont Sneffels dans les montagnes San Juan, près de Ridgway, Colorado, États-Unis (© lightphoto/Getty Images)](https://cn.bing.com/th?id=OHR.SneffelsAutumn_FR-CA3868659060_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-25 | [Cabinet royal portugais de lecture, Rio de Janeiro, Brésil (© Antonio Salaverry/Shutterstock)](https://cn.bing.com/th?id=OHR.PortugueseLibrary_FR-CA5530025263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-24 | [Deux loups gris, Parc national de Yellowstone, Wyoming, États-Unis (© John Morrison/Getty Images)](https://cn.bing.com/th?id=OHR.YellowstoneWolves_FR-CA5316157363_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
