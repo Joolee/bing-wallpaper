@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-27 | [A grove of pond cypress trees with autumn foliage, Georgia, United States (© Chris Moore/Getty Images)](https://cn.bing.com/th?id=OHR.PondCypress_EN-IN8944704657_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-26 | [Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)](https://cn.bing.com/th?id=OHR.SitovoWaterfall_EN-IN8441319721_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-25 | [Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)](https://cn.bing.com/th?id=OHR.VeniceSunrise_EN-IN8305689376_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
