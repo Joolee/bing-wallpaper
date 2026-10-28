@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-29 | [Château de Kunětická hora, Bohême, Tchéquie (© Marek Saroch/Alamy)](https://cn.bing.com/th?id=OHR.KuneticeCastle_FR-CA2795771167_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-28 | [Un bosquet de cyprès des étangs aux couleurs automnales, Géorgie, États-Unis (© Chris Moore/Getty Images)](https://cn.bing.com/th?id=OHR.PondCypress_FR-CA2583133681_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-27 | [Une cascade en Automne près de Sitovo, Oblast de Plovdiv, Bulgarie (© Nadya85/Getty Images)](https://cn.bing.com/th?id=OHR.SitovoWaterfall_FR-CA1592960286_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
