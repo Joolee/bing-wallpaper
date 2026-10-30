@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-31 | [St Bartholomew's Cathedral in Frankfurt, Germany (© AlxeyPnferov/Getty Images)](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_EN-IN8941917618_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-30 | [Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)](https://cn.bing.com/th?id=OHR.AutumnCranes_EN-IN9113460841_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-29 | [Standing stones at Avebury in Wiltshire, England (© George W Johnson/Getty Images)](https://cn.bing.com/th?id=OHR.AveburyStones_EN-IN9660577333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
