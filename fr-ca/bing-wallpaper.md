@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-01 | [Cathédrale Saint-Barthélemy de Francfort, Allemagne (© AlxeyPnferov/Getty Images)](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_FR-CA0091510299_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-31 | [Grues du Canada, Réserve faunique nationale de Bosque del Apache, Nouveau-Mexique, États-Unis (© Terry St.Louis/Getty Images)](https://cn.bing.com/th?id=OHR.AutumnCranes_FR-CA9805393789_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-30 | [Pierres dressées à Avebury dans le Wiltshire, Angleterre (© George W Johnson/Getty Images)](https://cn.bing.com/th?id=OHR.AveburyStones_FR-CA3077210347_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
