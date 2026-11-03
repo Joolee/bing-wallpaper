@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-04 | [Lac de Braies, parc naturel Fanes-Sennes-Braies, Dolomites, Italie (© leonid_tit/Getty Images)](https://cn.bing.com/th?id=OHR.AlpineBraies_FR-CA1379569003_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-03 | [Ours polaire et ses petits, baie d'Hudson, Manitoba, Canada (© Danita Delimont/Adobe Stock)](https://cn.bing.com/th?id=OHR.HudsonBear_FR-CA1124184910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-02 | [Forêt-Noire, Bade-Wurtemberg, Allemagne (© Britus/Getty Images)](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_FR-CA0751040857_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
