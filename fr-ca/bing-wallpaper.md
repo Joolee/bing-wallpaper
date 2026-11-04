@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-05 | [Personnes ramant au milieu de cyprès chauves aux couleurs automnales, Xuancheng, Anhui, Chine (© Jackal Pan/Getty Images)](https://cn.bing.com/th?id=OHR.AutumnChina_FR-CA1700914335_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-04 | [Lac de Braies, parc naturel Fanes-Sennes-Braies, Dolomites, Italie (© leonid_tit/Getty Images)](https://cn.bing.com/th?id=OHR.AlpineBraies_FR-CA1379569003_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-03 | [Ours polaire et ses petits, baie d'Hudson, Manitoba, Canada (© Danita Delimont/Adobe Stock)](https://cn.bing.com/th?id=OHR.HudsonBear_FR-CA1124184910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
