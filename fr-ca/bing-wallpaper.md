@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-08 | [Bison dans les prairies du parc national Theodore Roosevelt, Dakota du Nord, États-Unis (© Tandem Stock/Adobe Stock)](https://cn.bing.com/th?id=OHR.DakotaBison_FR-CA7354389540_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-07 | [Forêt de bambous, sentier Pīpīwai, parc national de Haleakalā, Maui, Hawaï, États-Unis (© MNStudio/Getty Images)](https://cn.bing.com/th?id=OHR.PipiwaiTrail_FR-CA2178065377_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-06 | [Échalier en bois dans un muret de pierre, Black Crag, Lake District, Angleterre (© Alex Treadway/Getty Images)](https://cn.bing.com/th?id=OHR.StileCrossing_FR-CA1954728536_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
