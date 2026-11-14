@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-15 | [Frozen azalea with red leaves (© avoferten/Shutterstock)](https://cn.bing.com/th?id=OHR.FirstFrost_EN-IN2174706343_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-14 | [Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)](https://cn.bing.com/th?id=OHR.BlueHK_EN-IN1948913499_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-13 | [Sunset over the Damodar River during Chhath Puja (© ParthapratimMukherjee2056/Shutterstock)](https://cn.bing.com/th?id=OHR.ChhathPuja2026_EN-IN1437573581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
