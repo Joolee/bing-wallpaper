@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-15 | [Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)](https://cn.bing.com/th?id=OHR.BlueHK_EN-CA2709774125_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-14 | [Abraham Lake in Alberta (© Guang Cao/Getty Images)](https://cn.bing.com/th?id=OHR.AbrahamCanada_EN-CA3327574008_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-13 | [North Window, Arches National Park, Moab, Utah, USA (© lightphoto/Getty Images)](https://cn.bing.com/th?id=OHR.NorthWindow_EN-CA6553146914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
