@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-18 | [Sentier des Cèdres, parc national des Glaciers, Montana, États-Unis (© DBushue Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TrailCedars_FR-CA4561759863_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-17 | [Monument national des habitations troglodytiques de Gila, Nouveau-Mexique, États-Unis (© Chiara Salvadori/Getty Images)](https://cn.bing.com/th?id=OHR.GilaCliff_FR-CA9862789282_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-16 | [Azalée gelée aux feuilles rouges (© avoferten/Shutterstock)](https://cn.bing.com/th?id=OHR.FirstFrost_FR-CA9228513518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
