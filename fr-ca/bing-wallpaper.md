@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-20 | [La sculpture « Body of Knowledge » de Jaume Plensa à l'université Goethe de Francfort, Allemagne (© Todamo/Shutterstock)](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_FR-CA0844625055_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-18 | [Sentier des Cèdres, parc national des Glaciers, Montana, États-Unis (© DBushue Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TrailCedars_FR-CA4561759863_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-17 | [Monument national des habitations troglodytiques de Gila, Nouveau-Mexique, États-Unis (© Chiara Salvadori/Getty Images)](https://cn.bing.com/th?id=OHR.GilaCliff_FR-CA9862789282_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
