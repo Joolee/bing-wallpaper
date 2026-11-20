@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-21 | [Baleine à bosse (Megaptera novaeangliae) en plongée, Kvaløya, Troms, nord de la Norvège (© Espen Bergersen/Minden Pictures)](https://cn.bing.com/th?id=OHR.Megaptera_FR-CA7010941954_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-20 | [La sculpture « Body of Knowledge » de Jaume Plensa à l'université Goethe de Francfort, Allemagne (© Todamo/Shutterstock)](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_FR-CA0844625055_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-18 | [Sentier des Cèdres, parc national des Glaciers, Montana, États-Unis (© DBushue Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TrailCedars_FR-CA4561759863_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

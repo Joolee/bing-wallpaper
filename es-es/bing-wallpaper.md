@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-20 | [Ballena jorobada (Megaptera novaeangliae) sumergiéndose, Kvaløya, Troms, norte de Noruega (© Espen Bergersen/Minden Pictures)](https://cn.bing.com/th?id=OHR.Megaptera_ES-ES5370739195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-19 | [La escultura “El cuerpo del conocimiento”, de Jaume Plensa, en la Universidad de Goethe, en Fráncfort, Alemania (© Todamo/Shutterstock)](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_ES-ES4863914751_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-17 | [Sendero de los Cedros, Montana, EE. UU. (© DBushue Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TrailCedars_ES-ES7366091421_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
