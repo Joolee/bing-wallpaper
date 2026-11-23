@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-24 | [Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_EN-IN7928513964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-23 | [Fiddlehead fern (© Reza Saputra/Getty Images)](https://cn.bing.com/th?id=OHR.FibonacciFern_EN-IN6938090263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-22 | [The chapel and hermitage of Santa Justa in Cantabria, Spain (© Tramont_ana/Getty Images)](https://cn.bing.com/th?id=OHR.JustaHermitage_EN-IN3031288581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
