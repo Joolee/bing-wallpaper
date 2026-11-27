@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-28 | [Butte at sunset, Face Canyon, Lake Powell, Utah, USA (© Jeff Foott/Minden)](https://cn.bing.com/th?id=OHR.FaceCanyon_EN-CA9192055868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-27 | [Rainbow Falls on the Wailuku River, Hilo, Hawaii, USA (© Peter Unger/Getty Images)](https://cn.bing.com/th?id=OHR.RFHilo_EN-CA6698357173_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-26 | [Sunset Point, Bryce Canyon National Park, Utah, USA (© Colin D. Young/Alamy)](https://cn.bing.com/th?id=OHR.SunsetPoint_EN-CA6444917407_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
