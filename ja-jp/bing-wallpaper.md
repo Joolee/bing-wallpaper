@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-29 | [上空から見たソマロイ橋、トロムソ、ノルウェー (© Roberto Moiola/Sysaworld/Getty Images)](https://cn.bing.com/th?id=OHR.SommaroyBridge_JA-JP5698715932_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-28 | [旧市街とヴルタヴァ川、プラハ、チェコ (© Lara_Uhryn/Getty Images)](https://cn.bing.com/th?id=OHR.VltavaPrague_JA-JP5027997170_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-27 | [夕暮れの岩山、フェイス・キャニオン、パウエル湖、ユタ州、アメリカ (© Jeff Foott/Minden)](https://cn.bing.com/th?id=OHR.FaceCanyon_JA-JP4501981808_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
